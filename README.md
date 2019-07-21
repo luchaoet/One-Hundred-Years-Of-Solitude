@@ -1,1 +1,1 @@
-# One-Hundred-Years-Of-Solitude
+# One Hundred Years Of Solitude
