@@ -179,7 +179,7 @@ At first young Aureliano understood only the risk, the immense possibility dange
 
 He wondered about the details of the dangers, he identified himself with the suffering and enjoyment of his brother, he felt frightened and happy.<br />他想知道危险的细节，他认同哥哥的苦楚和享受，也为他感到担心和快乐。
 
-He would stay awake waiting for him until dawn in the solitary bed that seemed to have a bottom of live coals, they would keep on talking until it was time to get up, so that both of them soon suffered from the same drowsiness, felt the same lack of interest in alchemy and the wisdom of their father, and they took refuge in solitude. "Those kids are out of their heads," Úrsula said. "They must have worms."
+He would stay awake waiting for him until dawn in the solitary bed that seemed to have a bottom of live coals, they would keep on talking until it was time to get up, so that both of them soon suffered from the same drowsiness, felt the same lack of interest in alchemy and the wisdom of their father, and they took refuge in solitude. "Those kids are out of their heads," Úrsula said. "They must have worms."<br />他保持着清醒，在孤单的床上等待着哥哥，直到天亮，翻来覆去好像床底下烧着炭火似的。他们夜谈到起床时分，以至于整天昏昏沉沉，对炼金术和父亲的聪明才智失去了兴趣，渐渐变得孤僻。“孩子们心不在焉，”苏尔苏拉说。“肚子里一定有蛔虫。”
 
 She prepared a repugnant potion for them made out of mashed wormseed, which they both drank with unforeseen stoicism, and they sat down at the same time on their pots eleven times in a single day, expelling some rosecolored parasites that they showed to everybody with great jubilation, for it allowed them to deceive Úrsula as to the origin of their distractions and drowsiness.
 
