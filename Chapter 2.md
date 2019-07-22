@@ -183,14 +183,11 @@ He would stay awake waiting for him until dawn in the solitary bed that seemed t
 
 She prepared a repugnant potion for them made out of mashed wormseed, which they both drank with unforeseen stoicism, and they sat down at the same time on their pots eleven times in a single day, expelling some rosecolored parasites that they showed to everybody with great jubilation, for it allowed them to deceive Úrsula as to the origin of their distractions and drowsiness.<br />她为他们准备了一剂令人恶心的药水，是用捣碎的驱虫籽制成的。他们俩用意想不到的坚忍喝掉了，与此同时他们一天内坐了十一次便池，并排出了一些玫瑰色的寄生虫。他们欢呼着展示给每个人看，为的是糊弄乌尔苏拉追究他们焦虑和困倦的起因。
 
-Aureliano not only understood by then, he also lived his brother's experiences as something of his own, for on one occasion when the latter was explaining in great detail the mechanism of love, he interrupted him to ask: "What does it feel like?" José Arcadio gave an immediate reply:
-奥雷里亚诺不仅理解了，对哥哥的经历感同身受，因为有一次当哥哥向他详细解释爱的原理时，他打断哥哥问道：“这是什么感觉？”何塞·阿尔卡蒂奥立即回答：
+Aureliano not only understood by then, he also lived his brother's experiences as something of his own, for on one occasion when the latter was explaining in great detail the mechanism of love, he interrupted him to ask: "What does it feel like?" José Arcadio gave an immediate reply:<br />奥雷里亚诺不仅理解了，对哥哥的经历感同身受，因为有一次当哥哥向他详细解释爱的原理时，他打断哥哥问道：“这是什么感觉？”何塞·阿尔卡蒂奥立即回答：
 
-"It's like an earthquake."
-“好像地震一般。”
+"It's like an earthquake."<br />“好像地震一般。”
 
-One January Thursday at two o'clock in the morning, Amaranta was born. Before anyone came into the room, Úrsula examined her carefully. She was light and watery, like a newt, but all of her parts were human: Aureliano did not notice the new thing except when the house became full of people.
-在一月的星期四的凌晨两点，阿玛兰塔出生了。人们进入房间之前，乌尔苏拉仔细的检查了一番。阿玛兰塔轻盈水润，犹如一条蝾螈，但是她身体的所有部分都是人的：奥雷里亚诺直到家里站满了人，才意识到这个新闻。
+One January Thursday at two o'clock in the morning, Amaranta was born. Before anyone came into the room, Úrsula examined her carefully. She was light and watery, like a newt, but all of her parts were human: Aureliano did not notice the new thing except when the house became full of people.<br />在一月的星期四的凌晨两点，阿玛兰塔出生了。人们进入房间之前，乌尔苏拉仔细的检查了一番。阿玛兰塔轻盈水润，犹如一条蝾螈，但是她身体的所有部分都是人的：奥雷里亚诺直到家里站满了人，才意识到这个新闻。
 
 Protected by the confusion, he went off in search of his brother, who had not been in bed since eleven o'clock, it was such an impulsive decision that he did not even have time to ask himself how he could get him out of Pilar Ternera's bedroom.
 
