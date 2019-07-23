@@ -187,9 +187,9 @@ Aureliano not only understood by then, he also lived his brother's experiences a
 
 "It's like an earthquake."<br />“好像地震一般。”
 
-One January Thursday at two o'clock in the morning, Amaranta was born. Before anyone came into the room, Úrsula examined her carefully. She was light and watery, like a newt, but all of her parts were human: Aureliano did not notice the new thing except when the house became full of people.<br />在一月的星期四的凌晨两点，阿玛兰塔出生了。人们进入房间之前，乌尔苏拉仔细的检查了一番。阿玛兰塔轻盈水润，犹如一条蝾螈，但是她身体的所有部分都是人的：奥雷里亚诺直到家里站满了人，才意识到这个新闻。
+One January Thursday at two o'clock in the morning, Amaranta was born. Before anyone came into the room, Úrsula examined her carefully. She was light and watery, like a newt, but all of her parts were human: Aureliano did not notice the new thing except when the house became full of people.<br />在一月的星期四的凌晨两点，阿玛兰塔出生了。人们进入房间之前，乌尔苏拉仔细的检查了一番。阿玛兰塔轻盈水润，犹如一条蝾螈，但是她身体的所有部位都是人的：奥雷里亚诺直到家里站满了人，才意识到这个新闻。
 
-Protected by the confusion, he went off in search of his brother, who had not been in bed since eleven o'clock, it was such an impulsive decision that he did not even have time to ask himself how he could get him out of Pilar Ternera's bedroom.
+Protected by the confusion, he went off in search of his brother, who had not been in bed since eleven o'clock, it was such an impulsive decision that he did not even have time to ask himself how he could get him out of Pilar Ternera's bedroom.<br />趁着混乱，
 
 He circled the house for several hours, whistling private calls, until the proximity of dawn forced him to go home. In his mother's room, playing with the newborn little sister and with a face that drooped with innocence, he found José Arcadio.
 
