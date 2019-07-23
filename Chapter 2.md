@@ -189,15 +189,15 @@ Aureliano not only understood by then, he also lived his brother's experiences a
 
 One January Thursday at two o'clock in the morning, Amaranta was born. Before anyone came into the room, Úrsula examined her carefully. She was light and watery, like a newt, but all of her parts were human: Aureliano did not notice the new thing except when the house became full of people.<br />在一月的星期四的凌晨两点，阿玛兰塔出生了。人们进入房间之前，乌尔苏拉仔细的检查了一番。阿玛兰塔轻盈水润，犹如一条蝾螈，但是她身体的所有部位都是人的：奥雷里亚诺直到家里站满了人，才意识到这个新闻。
 
-Protected by the confusion, he went off in search of his brother, who had not been in bed since eleven o'clock, it was such an impulsive decision that he did not even have time to ask himself how he could get him out of Pilar Ternera's bedroom.<br />趁着混乱，特尔内拉
+Protected by the confusion, he went off in search of his brother, who had not been in bed since eleven o'clock, it was such an impulsive decision that he did not even have time to ask himself how he could get him out of Pilar Ternera's bedroom.<br />趁着混乱，他溜出去寻找哥哥，哥哥早上十一点就不在床上了，如此冲动的决定甚至让他没有时间问自己如何让哥哥离开特尔内拉的卧室。
 
-He circled the house for several hours, whistling private calls, until the proximity of dawn forced him to go home. In his mother's room, playing with the newborn little sister and with a face that drooped with innocence, he found José Arcadio.
+He circled the house for several hours, whistling private calls, until the proximity of dawn forced him to go home. In his mother's room, playing with the newborn little sister and with a face that drooped with innocence, he found José Arcadio.<br />他在房子周围盘旋了好几个小时，吹着口哨打暗号，直到快天亮了才迫使他回家。在母亲的房间里，他发现了何塞·阿尔卡蒂奥，他正在和小妹妹玩耍，一脸的天真无邪。
 
 Úrsula was barely over her forty days' rest when the gypsies returned. They were the same acrobats and jugglers that had brought the ice. Unlike Melquíades' tribe, they had shown very quickly that they were not heralds of progress but purveyors of amusement.<br />当吉普赛人回来的时候，乌尔苏拉休息时间还没超过四十天。他们是一群带着冰的杂技演员和杂耍演员，与梅尔基亚德斯的部落不同，他们很快表明他们不是进步的先驱，而是娱乐的制造者。
 
 Even when they brought the ice they did not advertise it for its usefulness in the life of man but as a simple circus curiosity. This time, along with many other artifices, they brought a flying carpet. But they did not offer it as a fundamental contribution to the development of transport, rather as an object of recreation.<br />即使他们带来了冰，却并没有宣扬它在生活上给人带来的用处，只是简单的作为马戏团好奇心。与其他许多发明人一起，他们还带来了一条飞行毯，但是他们没有把它作为交通发展的基本贡献，而是作为娱乐的对象。
 
-The people at once dug up their last gold pieces to take advantage of a quick flight over the houses of the village. Protected by the delightful cover of collective disorder, José Arcadio and Pilar passed many relaxing hours. They were two happy lovers among the crowd, and they even came to suspect that love could be a feeling that was more relaxing and deep than the happiness, wild but momentary, of their secret nights.<br />
+The people at once dug up their last gold pieces to take advantage of a quick flight over the houses of the village. Protected by the delightful cover of collective disorder, José Arcadio and Pilar passed many relaxing hours. They were two happy lovers among the crowd, and they even came to suspect that love could be a feeling that was more relaxing and deep than the happiness, wild but momentary, of their secret nights.<br />人们立刻挖出他们最后的金币
 
 Pilar, however, broke the spell. Stimulated by the enthusiasm that José Arcadio showed in her companionship, she confused the form and the occasion, and all of a sudden she threw the whole world on top of him. "Now you really are a man," she told him. And since he did not understand what she meant, she spelled it out to him.<br />
 
