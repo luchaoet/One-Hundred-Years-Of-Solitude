@@ -199,15 +199,15 @@ Even when they brought the ice they did not advertise it for its usefulness in t
 
 The people at once dug up their last gold pieces to take advantage of a quick flight over the houses of the village. Protected by the delightful cover of collective disorder, José Arcadio and Pilar passed many relaxing hours. They were two happy lovers among the crowd, and they even came to suspect that love could be a feeling that was more relaxing and deep than the happiness, wild but momentary, of their secret nights.<br />人们立刻挖出他们最后的金币，体验一番在村庄的房顶上快速飞行。在混乱全体的愉悦掩护下，何塞·阿尔卡蒂奥和皮拉尔度过了许多轻松的时光。人群中的这两个幸福恋人，甚至怀疑爱情是一种相比秘密之夜的幸福、短暂的狂野更放松和更深刻的感觉。
 
-Pilar, however, broke the spell. Stimulated by the enthusiasm that José Arcadio showed in her companionship, she confused the form and the occasion, and all of a sudden she threw the whole world on top of him. "Now you really are a man," she told him. And since he did not understand what she meant, she spelled it out to him.<br />然而，皮拉尔打破了这个咒语。在他们交往过程中何塞·阿尔卡蒂奥表现出来的热情的刺激下，她混淆了形式和场合，突然间她把整个世界头投在他的身上。“现在你真的是一个男人，”她告诉他，因为他没有理解她的意思，所以她就拼写给他看。
+Pilar, however, broke the spell. Stimulated by the enthusiasm that José Arcadio showed in her companionship, she confused the form and the occasion, and all of a sudden she threw the whole world on top of him. "Now you really are a man," she told him. And since he did not understand what she meant, she spelled it out to him.<br />然而，皮拉尔打破了这个咒语。在他们交往过程中何塞·阿尔卡蒂奥表现出来的热情的刺激下，她弄错了形式和场合，突然间让他的世界天翻地覆。“你现在真的是一个男人了，”她告诉他。因为他没有理解她这句话的意思，所以她就一字一句拼写给他看。
 
-"You're going to be a father."<br />你将成为一个父亲。
+"You're going to be a father."<br />你将要做父亲了。
 
 José Arcadio did not dare leave the house for several days. It was enough for him to hear the rocking laughter of Pilar in the kitchen to run and take refuge in the laboratory, where the artifacts of alchemy had come alive again with Úrsula's blessing.<br />何塞·阿尔卡蒂奥好几天不敢离开家，他能够听过厨房隐约传来的皮拉尔笑声，于是躲避到实验室去了。在乌尔苏拉的祝福下，炼金术的器物又重新使用起来了。
 
 José Arcadio Buendía received his errant son with joy and initiated him in the search for the philosopher's stone, which he had finally undertaken. One afternoon the boys grew enthusiastic over the flying carpet that went swiftly by the laboratory at window level carrying the gypsy who was driving it and several children from the village who were merrily waving their hands, but José Arcadio Buendía did not even look at it.<br />何塞·阿尔卡蒂奥·布恩迪亚高兴地接受了这个犯过错误的儿子，最终他允诺，开始寻找哲学家之石。一天下午，越来越热衷飞行毯的男孩们，带着驾驶飞行毯的吉普赛人和几个村里的孩子，欢快地挥动他们的手，迅速地掠过实验室的窗外，但是何塞·阿尔卡蒂奥·布恩迪亚看都没看一眼。
 
-"Let them dream," he said. "We'll do better flying than they are doing, and with more scientific resources than a miserable bedspread." In spite of his feigned interest, José Arcadio must understood the powers of the philosopher's egg, which to him looked like a poorly blown bottle. <br />
+"Let them dream," he said. "We'll do better flying than they are doing, and with more scientific resources than a miserable bedspread." In spite of his feigned interest, José Arcadio never understood the powers of the philosopher's egg, which to him looked like a poorly blown bottle. <br />“让他们做梦去吧，”他说。“我们会用更好的方法实现飞行，用的是比凄惨的床罩更科学的材料。”尽管假装很感兴趣，何塞·阿尔卡蒂奥从未理解“哲学家之卵”的威力，在他看来像一个糟糕的瓶子。
 
 He did not succeed in escaping from his worries. He lost his appetite and he could not sleep. He fell into an ill humor, the same as his father's over the failure of his undertakings, and such was his upset that José Arcadio Buendía himself relieved him of his duties in the laboratory, thinking that he had taken alchemy too much to heart. 
 
