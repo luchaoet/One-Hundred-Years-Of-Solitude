@@ -209,7 +209,7 @@ José Arcadio Buendía received his errant son with joy and initiated him in the
 
 "Let them dream," he said. "We'll do better flying than they are doing, and with more scientific resources than a miserable bedspread." In spite of his feigned interest, José Arcadio never understood the powers of the philosopher's egg, which to him looked like a poorly blown bottle. <br />“让他们做梦去吧，”他说。“我们会用更好的方法实现飞行，用的是比凄惨的床罩更科学的材料。”尽管假装很感兴趣，何塞·阿尔卡蒂奥从未理解“哲学家之卵”的威力，在他看来像一个糟糕的瓶子。
 
-He did not succeed in escaping from his worries. He lost his appetite and he could not sleep. He fell into an ill humor, the same as his father's over the failure of his undertakings, and such was his upset that José Arcadio Buendía himself relieved him of his duties in the laboratory, thinking that he had taken alchemy too much to heart. 
+He did not succeed in escaping from his worries. He lost his appetite and he could not sleep. He fell into an ill humor, the same as his father's over the failure of his undertakings, and such was his upset that José Arcadio Buendía himself relieved him of his duties in the laboratory, thinking that he had taken alchemy too much to heart. <br />他没能摆脱自己的忧愁，没有胃口，睡不着觉。
 
 Aureliano, of course, understood that his brother's affliction did not have its source in the search for the philosopher's stone but he could not get into his confidence. He had lost his former spontaneity. From an accomplice and a communicative person he had become withdrawn and hostile. Anxious for solitude, bitten by a virulent rancor against the world, one night he left his bed as usual, but he did not go to Pilar Ternera's house, but to mingle is the tumult of the fair. 
 
