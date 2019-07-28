@@ -229,9 +229,9 @@ José Arcadio and the gypsy girl did not witness the decapitation. They went to 
 
 The gypsy girl removed the starched lace corsets she had on and there she was, changed into practically nothing. She was a languid little frog, with incipient breasts and legs so thin that they did not even match the size of José Arcadio's arms, but she had a decision and a warmth that compensated for her fragility. <br />吉普赛女郎脱掉浆过花边的紧身胸衣和所有的衣服，身体几乎没有，像一只瘦弱的小青蛙。乳房刚刚发育，纤细的腿甚至没有何塞·阿尔卡蒂奥的胳膊粗。但是她的果断和热情弥补了她的羸弱。
 
-Nevertheless, José Arcadio could not respond to her because they were in a kind of public tent where the gypsies passed through with their circus things and did their business, and would even tarry by the bed for a game dice. 
+Nevertheless, José Arcadio could not respond to her because they were in a kind of public tent where the gypsies passed through with their circus things and did their business, and would even tarry by the bed for a game dice. <br />然而，何塞·阿尔卡蒂奥没有回应她，因为他们在一个公共帐篷，吉普赛人带着马戏团道具经过，忙于他们的生意，甚至在床边停下来玩骰子游戏。
 
-The lamp hanging from the center pole lighted the whole place up. During a pause in the caresses, José Arcadio stretched out naked on the bed without knowing what to do, while the girl tried to inspire him. 
+The lamp hanging from the center pole lighted the whole place up. During a pause in the caresses, José Arcadio stretched out naked on the bed without knowing what to do, while the girl tried to inspire him. <br />悬挂在木杆顶部的灯照亮了整个帐篷，爱抚间隙，何塞·阿尔卡蒂赤身裸体在床上伸着懒腰，无所事事，而女郎试图勾引她。
 
 A gypsy woman with splendid flesh came in a short time after accompanied by a man who was not of the caravan but who was not from the village either, they both began to undress in front of the bed. Without meaning to, the woman looked at José Arcadio and examined his magnificent animal in repose with a kind of pathetic fervor.<br />
 
