@@ -265,7 +265,7 @@ On a certain occasion Pilar Ternera volunteered to do the household chores until
 
 Then he knew that in some inexplicable way she was to blame for his brother's flight and the consequent disappearance his mother, and he harassed her with a silent and implacable hostility in such a way that the woman did not return to the house.<br />然后他明白，以某些费解的原因，她对哥哥的逃亡和母亲的消失负有责任。用无声刻薄的敌意骚扰她，通过这种方式让她再也没来他家。
 
-Time put things in their place. José Arcadio Buendía and his son did not know exactly when they returned to the laboratory, dusting things, lighting the water pipe, involved once more in the patient manipulation of the material that had been sleeping for several months in its bed of manure. <br />
+Time put things in their place. José Arcadio Buendía and his son did not know exactly when they returned to the laboratory, dusting things, lighting the water pipe, involved once more in the patient manipulation of the material that had been sleeping for several months in its bed of manure. <br />岁月流逝，何塞·阿尔卡蒂奥·布恩迪亚和他的儿子不知道究竟是什么时候回到实验室的，拂拭灰尘，
 
 Even Amaranta, lying in a wicker basket, observed with curiosity the absorbing work of her father and her brother in the small room where the air was rarefied by mercury vapors. On a certain occasion, months after Úrsula's departure, strange things began to happen. 
 
