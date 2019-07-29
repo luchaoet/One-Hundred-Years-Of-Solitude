@@ -259,13 +259,13 @@ José Arcadio Buendía did not discover that his wife was missing until eight o'
 
 Aureliano went with them. Some Indian fishermen, whose language they could not understand, told them with signs that they had not seen anyone pass. After three days of useless searching they returned to the village.<br />奥雷里亚诺和他们一起去了。一些语言不通的印第安渔民比划着告诉他们，没有看到有人经过此处。经历了三天毫无收获的搜索，他们回到了村庄。
 
-For several weeks José Arcadio Buendía let himself be overcome by consternation. He took care of little Amaranta like a mother. He bathed and dressed her, took her to be nursed four times a day, and even sang to her at night the songs that Úrsula never knew how to sing. 
+For several weeks José Arcadio Buendía let himself be overcome by consternation. He took care of little Amaranta like a mother. He bathed and dressed her, took her to be nursed four times a day, and even sang to her at night the songs that Úrsula never knew how to sing.<br />几个星期以来，何塞·阿尔卡蒂奥·布恩迪亚惊恐万分。他像母亲一般照顾小阿玛兰塔，给她洗澡穿衣服，一天四次带她去喂奶，甚至每晚给她唱乌尔苏拉不知道如何唱的歌。
 
-On a certain occasion Pilar Ternera volunteered to do the household chores until Úrsula came back. Aureliano, whose mysterious intuition had become sharpened with the misfortune, felt a glow of clairvoyance when he saw her come in. 
+On a certain occasion Pilar Ternera volunteered to do the household chores until Úrsula came back. Aureliano, whose mysterious intuition had become sharpened with the misfortune, felt a glow of clairvoyance when he saw her come in.<br />某次，皮拉尔·特尔内拉自愿过来帮忙做家务，直到乌尔苏拉回来。奥雷里亚诺的神秘直觉因家中厄运变得更加敏锐，当他看到她进来的时候，就更加明显了。
 
-Then he knew that in some inexplicable way she was to blame for his brother's flight and the consequent disappearance his mother, and he harassed her with a silent and implacable hostility in such a way that the woman did not return to the house.<br />
+Then he knew that in some inexplicable way she was to blame for his brother's flight and the consequent disappearance his mother, and he harassed her with a silent and implacable hostility in such a way that the woman did not return to the house.<br />然后他明白，以某些费解的原因，她对哥哥的逃亡和母亲的消失负有责任。用无声刻薄的敌意骚扰她，通过这种方式让她再也没来他家。
 
-Time put things in their place. José Arcadio Buendía and his son did not know exactly when they returned to the laboratory, dusting things, lighting the water pipe, involved once more in the patient manipulation of the material that had been sleeping for several months in its bed of manure. 
+Time put things in their place. José Arcadio Buendía and his son did not know exactly when they returned to the laboratory, dusting things, lighting the water pipe, involved once more in the patient manipulation of the material that had been sleeping for several months in its bed of manure. <br />
 
 Even Amaranta, lying in a wicker basket, observed with curiosity the absorbing work of her father and her brother in the small room where the air was rarefied by mercury vapors. On a certain occasion, months after Úrsula's departure, strange things began to happen. 
 
