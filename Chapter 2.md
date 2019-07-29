@@ -269,19 +269,21 @@ Time put things in their place. José Arcadio Buendía and his son did not know 
 
 Even Amaranta, lying in a wicker basket, observed with curiosity the absorbing work of her father and her brother in the small room where the air was rarefied by mercury vapors. On a certain occasion, months after Úrsula's departure, strange things began to happen.<br />阿玛兰塔躺在柳条框中，好奇地看着父亲和哥哥在空气被汞蒸气稀释的小房间里入神地工作。忽然之间，在乌尔苏拉离开后的几个月后，奇怪的事情开始发生。
 
-An empty flask that had been forgotten in a cupboard for a long time became so heavy that it could not be moved. A pan of water on the worktable boiled without any fire under it for a half hour until it completely evaporated. José Arcadio Buendía and his son observed those phenomena with startled excitement, unable to explain them but interpreting them as predictions of the material. <br />
+An empty flask that had been forgotten in a cupboard for a long time became so heavy that it could not be moved. A pan of water on the worktable boiled without any fire under it for a half hour until it completely evaporated. José Arcadio Buendía and his son observed those phenomena with startled excitement, unable to explain them but interpreting them as predictions of the material. <br />橱柜里一个遗忘很长时间的空烧瓶变得沉重，难以移动。工作台上锅里的水在没有火的情况下沸腾了半个小时，直到被完全蒸发。何塞·阿尔卡蒂奥·布恩迪亚和他的儿子惊讶又激动地观察这些现象，无法解释，只能解释为新材料诞生的预兆。
 
-One day Amaranta's basket began to move by itself and made a complete turn about the room, to the consternation of Auerliano, who hurried to stop it. But his father did not get upset. He put the basket in its place and tied it to the leg of a table, convinced that the longawaited event was imminent. 
+One day Amaranta's basket began to move by itself and made a complete turn about the room, to the consternation of Auerliano, who hurried to stop it. But his father did not get upset. He put the basket in its place and tied it to the leg of a table, convinced that the longawaited event was imminent. <br />一天，阿玛兰塔的篮子开始移动，在整个房间里兜圈，奥雷里亚诺惊讶无比，匆忙阻拦住。但是他的父亲没有惊慌。他把篮子放回原处，并把它绑在桌腿上，确信期待已经的事情即将发生。
 
-It was on that occasion that Auerliano heard him say:<br />
+It was on that occasion that Auerliano heard him say:<br />此时奥雷利亚诺听到他说：
 
-"If you don't fear God, fear him through the metals.<br />
+"If you don't fear God, fear him through the metals."<br />“如果你不敬畏上帝，也该敬畏金属。”
 
-Suddenly, almost five months after her disappearance, Úrsula came back. She arrived exalted, rejuvenated, with new clothes in a style that was unknown in the village. José Arcadio Buendía could barely stand up under the impact. "That was it!" he shouted. "I knew it was going to happen." 
+Suddenly, almost five months after her disappearance, Úrsula came back. She arrived exalted, rejuvenated, with new clothes in a style that was unknown in the village. José Arcadio Buendía could barely stand up under the impact. "That was it!" he shouted. "I knew it was going to happen." <br />消失近五个月后，乌尔苏拉突然回来了。她高贵，年轻有活力，新衣服的款式在村庄里从来没有见过，何塞·阿尔卡蒂奥·布恩迪亚激动地差点站不起来。“就是这样！”他喊道。“我就知道会发生。”
 
-And he really believed it, for during his prolonged imprisonment as he manipulated the material, he begged in the depth of his heart that the longed-for miracle should not be the discovery of the philosopher's stone, or the freeing of the breath that makes metals live, or the faculty to convert the hinges and the locks of the house into gold, but what had just happened: Úrsula's return. But she did not share his excitement. She gave him a conventional kiss, as if she had been away only an hour, and she told him:<br />
+And he really believed it, for during his prolonged imprisonment as he manipulated the material, he begged in the depth of his heart that the longed-for miracle should not be the discovery of the philosopher's stone, or the freeing of the breath that makes metals live, or the faculty to convert the hinges and the locks of the house into gold, but what had just happened: <br />
 
-"Look out the door."<br />
+Úrsula's return. But she did not share his excitement. She gave him a conventional kiss, as if she had been away only an hour, and she told him:<br />乌尔苏拉回来了，但是她没有分享他的激动之情。她给了他一个惯例般的吻，就像她仅仅离开一个小时一样。她告诉他说：
+
+"Look out the door."<br />“看看门外。”
 
 José Arcadio Buendía took a long time to get out of his perplexity when he went out into the street and saw the crowd. They were not gypsies. They were men and women like them, with straight hair and dark skin, who spoke the same language and complained the same pains.
 
