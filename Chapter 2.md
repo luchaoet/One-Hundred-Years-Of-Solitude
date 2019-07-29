@@ -235,13 +235,13 @@ The lamp hanging from the center pole lighted the whole place up. During a pause
 
 A gypsy woman with splendid flesh came in a short time after accompanied by a man who was not of the caravan but who was not from the village either, they both began to undress in front of the bed. Without meaning to, the woman looked at José Arcadio and examined his magnificent animal in repose with a kind of pathetic fervor.<br />不一会儿，一个身姿绰约的吉普赛妇女在一个男人的陪同下突然进来，这个男人不属于商队也不是来自这个村庄。他们在床前开始宽衣解带。这个女人以一种感伤的热情看着休息中的何塞·阿尔卡蒂奥，检查他健壮的肉体。
 
-"My boy," she exclaimed, "may God preserve you just as you are."<br />“我的孩子，”她大声喊道，“愿上帝保佑你”
+"My boy," she exclaimed, "may God preserve you just as you are."<br />“我的孩子，”她大声喊道，“愿上帝保佑你。”
 
 José Arcadio's companion asked them to leave them alone, and the couple lay down on the ground, close to the bed. The passion of the others woke up José Arcadio's fervor.<br />何塞·阿尔卡蒂奥的伴侣让他们离开这里，这两人却靠近床边，纷纷躺在地上。他们的激情唤醒了何塞·阿尔卡蒂奥的热情。
 
-On the first contact the bones of the girl seemed to become disjointed with a disorderly crunch like the sound of a box of dominoes, and her skin broke out into a pale sweat and her eyes filled with tears as her whole body exhaled a lugubrious lament and a vague smell of mud. But she bore the impact with a firmness of character and a bravery that were admirable.<br />
+On the first contact the bones of the girl seemed to become disjointed with a disorderly crunch like the sound of a box of dominoes, and her skin broke out into a pale sweat and her eyes filled with tears as her whole body exhaled a lugubrious lament and a vague smell of mud. But she bore the impact with a firmness of character and a bravery that were admirable.<br />刚一接触，女郎的骨头纷纷紧缩脱节，像多米诺骨牌的声音，她的皮肤流出晶莹的汗珠，眼睛里充满了泪水，整个身体发出悲伤的哀叹和淡淡的污泥气息。但是她的性格坚毅，胆识令人钦佩。
 
-José Arcadio felt himself lifted up into the air toward a state of seraphic inspiration, where his heart burst forth with an outpouring of tender obscenities that entered the girl through her ears and came out of her mouth translated into her language. It was Thursday. <br />
+José Arcadio felt himself lifted up into the air toward a state of seraphic inspiration, where his heart burst forth with an outpouring of tender obscenities that entered the girl through her ears and came out of her mouth translated into her language. It was Thursday. <br />何塞·阿尔卡蒂奥感觉自己身悬空中，达到一种无比快乐的状态。他的内心向外涌出温柔的下流话，通过耳朵进入她的身体，翻译成她的语言从嘴里说出来。这时是星期四。
 
 On Saturday night, José Arcadio wrapped a red cloth around his head and left with the gypsies.<br />在星期六的晚上，何塞·阿尔卡蒂奥在自己头上包裹上一块红布，跟随吉普赛人离开了。
 
@@ -265,11 +265,11 @@ On a certain occasion Pilar Ternera volunteered to do the household chores until
 
 Then he knew that in some inexplicable way she was to blame for his brother's flight and the consequent disappearance his mother, and he harassed her with a silent and implacable hostility in such a way that the woman did not return to the house.<br />然后他明白，以某些费解的原因，她对哥哥的逃亡和母亲的消失负有责任。用无声刻薄的敌意骚扰她，通过这种方式让她再也没来他家。
 
-Time put things in their place. José Arcadio Buendía and his son did not know exactly when they returned to the laboratory, dusting things, lighting the water pipe, involved once more in the patient manipulation of the material that had been sleeping for several months in its bed of manure. <br />岁月流逝，何塞·阿尔卡蒂奥·布恩迪亚和他的儿子不知道究竟是什么时候回到实验室的，拂拭灰尘，
+Time put things in their place. José Arcadio Buendía and his son did not know exactly when they returned to the laboratory, dusting things, lighting the water pipe, involved once more in the patient manipulation of the material that had been sleeping for several months in its bed of manure.<br />岁月流逝，何塞·阿尔卡蒂奥·布恩迪亚和他的儿子不知道究竟是什么时候回到实验室的，拂拭灰尘，擦亮水管，再次耐心地操作放在肥料基上好几个月的材料。
 
-Even Amaranta, lying in a wicker basket, observed with curiosity the absorbing work of her father and her brother in the small room where the air was rarefied by mercury vapors. On a certain occasion, months after Úrsula's departure, strange things began to happen. 
+Even Amaranta, lying in a wicker basket, observed with curiosity the absorbing work of her father and her brother in the small room where the air was rarefied by mercury vapors. On a certain occasion, months after Úrsula's departure, strange things began to happen.<br />阿玛兰塔躺在柳条框中，好奇地看着父亲和哥哥在空气被汞蒸气稀释的小房间里入神地工作。忽然之间，在乌尔苏拉离开后的几个月后，奇怪的事情开始发生。
 
-An empty flask that had been forgotten in a cupboard for a long time became so heavy that it could not be moved. A pan of water on the worktable boiled without any fire under it for a half hour until it completely evaporated. José Arcadio Buendía and his son observed those phenomena with startled excitement, unable to explain them but interpreting them as predictions of the material. 
+An empty flask that had been forgotten in a cupboard for a long time became so heavy that it could not be moved. A pan of water on the worktable boiled without any fire under it for a half hour until it completely evaporated. José Arcadio Buendía and his son observed those phenomena with startled excitement, unable to explain them but interpreting them as predictions of the material. <br />
 
 One day Amaranta's basket began to move by itself and made a complete turn about the room, to the consternation of Auerliano, who hurried to stop it. But his father did not get upset. He put the basket in its place and tied it to the leg of a table, convinced that the longawaited event was imminent. 
 
