@@ -231,27 +231,33 @@ The gypsy girl removed the starched lace corsets she had on and there she was, c
 
 Nevertheless, José Arcadio could not respond to her because they were in a kind of public tent where the gypsies passed through with their circus things and did their business, and would even tarry by the bed for a game dice. <br />然而，何塞·阿尔卡蒂奥没有回应她，因为他们在一个公共帐篷，吉普赛人带着马戏团道具经过，忙于他们的生意，甚至在床边停下来玩骰子游戏。
 
-The lamp hanging from the center pole lighted the whole place up. During a pause in the caresses, José Arcadio stretched out naked on the bed without knowing what to do, while the girl tried to inspire him. <br />悬挂在木杆顶部的灯照亮了整个帐篷，爱抚间隙，何塞·阿尔卡蒂赤身裸体在床上伸着懒腰，无所事事，而女郎试图勾引她。
+The lamp hanging from the center pole lighted the whole place up. During a pause in the caresses, José Arcadio stretched out naked on the bed without knowing what to do, while the girl tried to inspire him. <br />悬挂在木杆顶部的灯照亮了整个帐篷，爱抚间隙，何塞·阿尔卡蒂奥赤身裸体在床上伸着懒腰，无所事事，而女郎试图勾引她。
 
-A gypsy woman with splendid flesh came in a short time after accompanied by a man who was not of the caravan but who was not from the village either, they both began to undress in front of the bed. Without meaning to, the woman looked at José Arcadio and examined his magnificent animal in repose with a kind of pathetic fervor.<br />
+A gypsy woman with splendid flesh came in a short time after accompanied by a man who was not of the caravan but who was not from the village either, they both began to undress in front of the bed. Without meaning to, the woman looked at José Arcadio and examined his magnificent animal in repose with a kind of pathetic fervor.<br />不一会儿，一个身姿绰约的吉普赛妇女在一个男人的陪同下突然进来，这个男人不属于商队也不是来自这个村庄。他们在床前开始宽衣解带。这个女人以一种感伤的热情看着休息中的何塞·阿尔卡蒂奥，检查他健壮的肉体。
 
-"My boy," she exclaimed, "may God preserve you just as you are."<br />José Arcadio's companion asked them to leave them alone, and the couple lay down on the ground, close to the bed. The passion of the others woke up José Arcadio's fervor. 
+"My boy," she exclaimed, "may God preserve you just as you are."<br />“我的孩子，”她大声喊道，“愿上帝保佑你”
 
-On the first contact the bones of the girl seemed to become disjointed with a disorderly crunch like the sound of a box of dominoes, and her skin broke out into a pale sweat and her eyes filled with tears as her whole body exhaled a lugubrious lament and a vague smell of mud. But she bore the impact with a firmness of character and a bravery that were admirable. 
+José Arcadio's companion asked them to leave them alone, and the couple lay down on the ground, close to the bed. The passion of the others woke up José Arcadio's fervor.<br />何塞·阿尔卡蒂奥的伴侣让他们离开这里，这两人却靠近床边，纷纷躺在地上。他们的激情唤醒了何塞·阿尔卡蒂奥的热情。
 
-José Arcadio felt himself lifted up into the air toward a state of seraphic inspiration, where his heart burst forth with an outpouring of tender obscenities that entered the girl through her ears and came out of her mouth translated into her language. It was Thursday. 
+On the first contact the bones of the girl seemed to become disjointed with a disorderly crunch like the sound of a box of dominoes, and her skin broke out into a pale sweat and her eyes filled with tears as her whole body exhaled a lugubrious lament and a vague smell of mud. But she bore the impact with a firmness of character and a bravery that were admirable.<br />
 
-On Saturday night, José Arcadio wrapped a red cloth around his head and left with the gypsies.<br />When Úrsula discovered his absence she searched for him all through the village. In the remains of the gypsy camp there was nothing but a garbage pit among the still smoking ashes of the extinguished campfires. 
+José Arcadio felt himself lifted up into the air toward a state of seraphic inspiration, where his heart burst forth with an outpouring of tender obscenities that entered the girl through her ears and came out of her mouth translated into her language. It was Thursday. <br />
 
-Someone who was there looking for beads among the trash told Úrsula that the night before he had seen her son in the tumult of the caravan pushing the snakeman's cage on a cart. "He's become a gypsy" she shouted to her husband, who had not shown the slightest sign of alarm over the disappearance.<br />
+On Saturday night, José Arcadio wrapped a red cloth around his head and left with the gypsies.<br />在星期六的晚上，何塞·阿尔卡蒂奥在自己头上包裹上一块红布，跟随吉普赛人离开了。
 
-"I hope it's true," José Arcadio Buendía said, grinding in his mortar the material that had been ground a thousand times and reheated and ground again. "That way he'll learn to be a man." 
+When Úrsula discovered his absence she searched for him all through the village. In the remains of the gypsy camp there was nothing but a garbage pit among the still smoking ashes of the extinguished campfires.<br />乌尔苏拉发现儿子失踪了，在村庄四处寻找他。在吉普赛人营地的废墟中，什么都没留下，除了一堆垃圾堆，篝火灰烬仍在冒着烟。
 
-Úrsula asked where the gypsies had gone. She went along asking and following the road she had been shown, thinking that she still had time to catch up to them. She kept getting farther away from the village until she felt so far away that she did not think about returning. 
+Someone who was there looking for beads among the trash told Úrsula that the night before he had seen her son in the tumult of the caravan pushing the snakeman's cage on a cart. <br />有人在垃圾堆中搜寻珠子，那人告诉乌尔苏拉，前一天晚上他看见她的儿子在商队的喧闹中，将装有蛇人的笼子推到车上。
 
-José Arcadio Buendía did not discover that his wife was missing until eight o'clock at night, when he left the material warming in a bed of manure and went to see what was wrong with little Amaranta, who was getting hoarse from crying. In a few hours he gathered a group of well-equipped men, put Amaranta in the hands a woman who offered to nurse her, and was lost on invisible paths in pursuit of Úrsula. 
+"He's become a gypsy" she shouted to her husband, who had not shown the slightest sign of alarm over the disappearance.<br />“他变成了一个吉普赛人。”她对丈夫喊道，但是她的丈夫对儿子的失踪并没有表现出丝毫的焦急。
 
-Aureliano went with them. Some Indian fishermen, whose language they could not understand, told them with signs that they had not seen anyone pass. After three days of useless searching they returned to the village.<br />
+"I hope it's true," José Arcadio Buendía said, grinding in his mortar the material that had been ground a thousand times and reheated and ground again. "That way he'll learn to be a man." <br />“我倒希望这是真的，”何塞·阿尔卡蒂奥·布恩迪亚说道，一边研磨研钵中已经研磨过一千次的材料，并重新即热，再次研磨，“那样他就会成为一个男人。”
+
+Úrsula asked where the gypsies had gone. She went along asking and following the road she had been shown, thinking that she still had time to catch up to them. She kept getting farther away from the village until she felt so far away that she did not think about returning.<br />乌尔苏拉打听吉普赛人去向何方，沿着道路一直往前，一直询问，希望自己仍有时间赶上他们。她离村庄越来越远，最后由于太远她就没想着回去。
+
+José Arcadio Buendía did not discover that his wife was missing until eight o'clock at night, when he left the material warming in a bed of manure and went to see what was wrong with little Amaranta, who was getting hoarse from crying. In a few hours he gathered a group of well-equipped men, put Amaranta in the hands a woman who offered to nurse her, and was lost on invisible paths in pursuit of Úrsula. <br />晚上八点，何塞·阿尔卡蒂奥·布恩迪亚把材料放在肥料基上保温，然后去看看哭声变得沙哑的小阿玛兰塔出了什么问题，此时他才发现妻子不见了。几个小时后，他召集了一群装备精良的男人，把阿玛兰塔托付给了一个自动提出愿意看护她的女人，便迷失在了追寻乌尔苏拉的无形道路上。
+
+Aureliano went with them. Some Indian fishermen, whose language they could not understand, told them with signs that they had not seen anyone pass. After three days of useless searching they returned to the village.<br />奥雷里亚诺和他们一起去了。一些语言不通的印第安渔民比划着告诉他们，没有看到有人经过此处。经历了三天毫无收获的搜索，他们回到了村庄。
 
 For several weeks José Arcadio Buendía let himself be overcome by consternation. He took care of little Amaranta like a mother. He bathed and dressed her, took her to be nursed four times a day, and even sang to her at night the songs that Úrsula never knew how to sing. 
 
