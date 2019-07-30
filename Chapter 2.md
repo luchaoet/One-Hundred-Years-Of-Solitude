@@ -174,8 +174,7 @@ She did not try to calm him down.<br />她并没有劝其冷静。
 
 That conversation, the biting rancor that he felt against his father, and the imminent possibility of wild love inspired a serene courage in him. In a spontaneous way, without any preparation, he told everything to his brother.<br />那次谈话中，对父亲尖刻的怨恨和即将来临的狂野性爱，让他鼓起了一种坦然的勇气。没有任何准备，他直接就把这一切告诉了自己的弟弟。
 
-At first young Aureliano understood only the risk, the immense possibility danger that his brother's adventures implied, and he could not understand the fascination of the subject. Little by little he became contaminated with the anxiety.
-<br />起初年轻的奥雷里亚诺只意识到了风险，哥哥的冒险可能带来巨大的危险，他并不理解这方面的魅力，渐渐的，开始被哥哥的焦虑所感染。
+At first young Aureliano understood only the risk, the immense possibility danger that his brother's adventures implied, and he could not understand the fascination of the subject. Little by little he became contaminated with the anxiety.<br />起初年轻的奥雷里亚诺只意识到了风险，哥哥的冒险可能带来巨大的危险，他并不理解这方面的魅力，渐渐的，开始被哥哥的焦虑所感染。
 
 He wondered about the details of the dangers, he identified himself with the suffering and enjoyment of his brother, he felt frightened and happy.<br />他想知道危险的细节，他认同哥哥的苦楚和享受，也为他感到担心和快乐。
 
