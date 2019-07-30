@@ -285,10 +285,10 @@ And he really believed it, for during his prolonged imprisonment as he manipulat
 
 "Look out the door."<br />“看看门外。”
 
-José Arcadio Buendía took a long time to get out of his perplexity when he went out into the street and saw the crowd. They were not gypsies. They were men and women like them, with straight hair and dark skin, who spoke the same language and complained the same pains.
+José Arcadio Buendía took a long time to get out of his perplexity when he went out into the street and saw the crowd. They were not gypsies. They were men and women like them, with straight hair and dark skin, who spoke the same language and complained the same pains.<br />何塞·阿尔卡蒂奥·布恩迪亚走上街头，看见人群，好长时间才解开疑惑。他们不是吉普赛人，男男女女跟他们一样，直发深色皮肤，说着同样的语言，抱怨着同样的烦恼。
 
-They had mules loaded down with things to eat, oxcarts with furniture and domestic utensils, pure and simple earthly accessories put on sale without any fuss by peddlers of everyday reality.
+They had mules loaded down with things to eat, oxcarts with furniture and domestic utensils, pure and simple earthly accessories put on sale without any fuss by peddlers of everyday reality.<br />他们的骡子载着吃的东西，牛车载着家具和器具，商贩们每天不慌不忙地兜售着摆放在上面的简单纯碎的世俗饰品。
 
-They came from the other side of the swamp, only two days away, where there were towns that received mail every month in the year where they were familiar with the implements of good living.
+They came from the other side of the swamp, only two days away, where there were towns that received mail every month in the year where they were familiar with the implements of good living.<br />他们来自沼泽的另一面，相隔两天的距离，那里的集镇一年中每个月都能收到邮件，他们熟练使用生活器具。
 
-Úrsula had not caught up with the gypsies, but she had found the route that her husband had been unable to discover in his frustrated search for the great inventions.
+Úrsula had not caught up with the gypsies, but she had found the route that her husband had been unable to discover in his frustrated search for the great inventions.<br />乌尔苏拉没有追赶上吉普赛人，但是她意外发现了丈夫苦苦寻找伟大发明时没能发现的路线。
