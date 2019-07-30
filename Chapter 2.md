@@ -279,7 +279,7 @@ It was on that occasion that Auerliano heard him say:<br />此时奥雷利亚诺
 
 Suddenly, almost five months after her disappearance, Úrsula came back. She arrived exalted, rejuvenated, with new clothes in a style that was unknown in the village. José Arcadio Buendía could barely stand up under the impact. "That was it!" he shouted. "I knew it was going to happen." <br />消失近五个月后，乌尔苏拉突然回来了。她高贵，年轻有活力，新衣服的款式在村庄里从来没有见过，何塞·阿尔卡蒂奥·布恩迪亚激动地差点站不起来。“就是这样！”他喊道。“我就知道会发生。”
 
-And he really believed it, for during his prolonged imprisonment as he manipulated the material, he begged in the depth of his heart that the longed-for miracle should not be the discovery of the philosopher's stone, or the freeing of the breath that makes metals live, or the faculty to convert the hinges and the locks of the house into gold, but what had just happened: <br />
+And he really believed it, for during his prolonged imprisonment as he manipulated the material, he begged in the depth of his heart that the longed-for miracle should not be the discovery of the philosopher's stone, or the freeing of the breath that makes metals live, or the faculty to convert the hinges and the locks of the house into gold, but what had just happened: <br />他确信这一点，因为在他操作材料的长期幽闭期间，内心深处恳求，渴望奇迹的发生，不是发现“哲学家之石”，而是刚刚发生的事情：
 
 Úrsula's return. But she did not share his excitement. She gave him a conventional kiss, as if she had been away only an hour, and she told him:<br />乌尔苏拉回来了，但是她没有分享他的激动之情。她给了他一个惯例般的吻，就像她仅仅离开一个小时一样。她告诉他说：
 
