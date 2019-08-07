@@ -18,7 +18,7 @@ It was also José Arcadio Buendía who decided during those years that they shou
 
 Many years later, when Macondo was a field of wooden houses with zinc roofs, the broken and dusty almond trees still stood on the oldest streets, although no one knew who had planted them.<br />许多年以后，马孔多遍布镀锌屋顶的木屋，残败满是灰尘的杏仁树依旧矗立在古老的街道，尽管没人知道它们是由谁种植的。
 
-While his father was putting the town in order and his mother was increasing their wealth with her marvelous business of candied little roosters and fish, which left the house twice a day strung along sticks of balsa wood, Aureliano spent interminable hours in the abandoned laboratory, learning the art of silverwork by his own experimentation.<br />父亲有序地整治城镇，母亲售卖小公鸡小鱼形状的蜜饯，通过这一非同一般的生意来提升财富，将蜜饯系在巴尔萨木棍上，每天两次出门兜售。奥雷里亚诺经年累月地呆在废弃的实验室，通过自己的实验学习银制工艺。
+While his father was putting the town in order and his mother was increasing their wealth with her marvelous business of candied little roosters and fish, which left the house twice a day strung along sticks of balsa wood, Aureliano spent interminable hours in the abandoned laboratory, learning the art of silverwork by his own experimentation.<br />父亲有序地整治城镇，母亲售卖小公鸡小鱼形状的蜜饯，通过这一非同一般的生意来提升财富，将蜜饯系在巴尔萨木棍上，每天两次出门兜售。奥雷里亚诺则经年累月地呆在废弃的实验室，通过自己的实验学习银制工艺。
 
-He had shot up so fast that in a short time the clothing left behind by his brother no longer fit him and he began to wear his father's, but Visitación had to sew pleats in the shirt and darts in the pants, because Aureliano had not sequined the corpulence of the others.<br />
+He had shot up so fast that in a short time the clothing left behind by his brother no longer fit him and he began to wear his father's, but Visitación had to sew pleats in the shirt and darts in the pants, because Aureliano had not sequined the corpulence of the others.<br />他的身体发育快速，很快，哥哥的衣服不再合身，便开始穿父亲的衣服，只是需要维希塔西恩缝紧衬衫的活褶和裤子的死褶，因为奥雷里亚诺没有别人那么肥胖。
 
