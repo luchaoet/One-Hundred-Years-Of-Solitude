@@ -20,17 +20,17 @@ Many years later, when Macondo was a field of wooden houses with zinc roofs, the
 
 While his father was putting the town in order and his mother was increasing their wealth with her marvelous business of candied little roosters and fish, which left the house twice a day strung along sticks of balsa wood, Aureliano spent interminable hours in the abandoned laboratory, learning the art of silverwork by his own experimentation.<br />父亲有序地整治城镇，母亲售卖小公鸡小鱼形状的蜜饯，通过这一非同一般的生意来提升财富，将蜜饯系在巴尔萨木棍上，每天两次出门兜售。奥雷里亚诺则经年累月地呆在废弃的实验室，通过自己的实验学习银制工艺。
 
-He had shot up so fast that in a short time the clothing left behind by his brother no longer fit him and he began to wear his father's, but Visitación had to sew pleats in the shirt and darts in the pants, because Aureliano had not sequined the corpulence of the others.<br />他的身体发育快速，哥哥的衣服不再合身，便开始穿父亲的衣服，只是需要维希塔西恩缝紧衬衫的活褶和裤子的死褶，因为奥雷里亚诺没有别人那么肥胖。
+He had shot up so fast that in a short time the clothing left behind by his brother no longer fit him and he began to wear his father's, but Visitación had to sew pleats in the shirt and darts in the pants, because Aureliano had not sequined the corpulence of the others.<br />他的身体发育快速，哥哥的衣服不再合身，便开始穿父亲的衣服，只是需要维希塔西恩缝紧衬衫的活褶和裤子的死褶，因为奥雷里亚诺没有其他人那么肥胖。
 
 Adolescence had taken away the softness of his voice and had made silent and definitely solitary, but, on the other hand, it had restored the intense expression that he had had in his eyes when he was born. He concentrated so much on his experiments in silverwork that he scarcely left the laboratory to eat.<br />青春期带走了他柔和的嗓音，变得沉默寡言，吊形吊影，但是另一方面，他眼中恢复了出生时的紧张表情。他专心致志于银制品工艺的实验，几乎没有离开过实验室去吃饭。
 
-Worried ever his inner withdrawal, José Arcadio Buendía gave him the keys to the house and a little money, thinking that perhaps he needed a woman. But Aureliano spent the money on muriatic acid to prepare some aqua regia and he beautified the keys by plating them with gold.<br />
+Worried ever his inner withdrawal, José Arcadio Buendía gave him the keys to the house and a little money, thinking that perhaps he needed a woman. But Aureliano spent the money on muriatic acid to prepare some aqua regia and he beautified the keys by plating them with gold.<br />何塞·阿尔卡蒂奥·布恩迪亚担心他心里打退堂鼓，给了他房子的钥匙和一点钱，认为他可能需要一个女人。但是奥雷里亚诺用钱买了盐酸，研制王水，通过镀金美化钥匙。
 
-His excesses were hardly comparable to those of Arcadio and Amaranta, who had already begun to get their second teeth and still went about all day clutching at the Indians' cloaks, stubborn in their decision not to speak Spanish but the Guajiro language. 
+His excesses were hardly comparable to those of Arcadio and Amaranta, who had already begun to get their second teeth and still went about all day clutching at the Indians' cloaks, stubborn in their decision not to speak Spanish but the Guajiro language.<br />他的过激行为几乎不能和阿尔卡蒂奥和阿玛兰塔相比，他们已经开始长第二颗牙齿，整天抓着印第安人的斗篷，顽固地不肯说西班牙语，只说瓜吉罗语。
 
-"You shouldn't complain." Úrsula told her husband. "Children inherit their parents' madness." And as she was lamenting her misfortune, convinced that the wild behavior of her children was something as fearful as a pig's tail, Aureliano gave a look that wrapped her in an atmosphere of uncertainty.
+"You shouldn't complain." Úrsula told her husband. "Children inherit their parents' madness." And as she was lamenting her misfortune, convinced that the wild behavior of her children was something as fearful as a pig's tail, Aureliano gave a look that wrapped her in an atmosphere of uncertainty.<br />“你不应该抱怨。”乌尔苏拉对丈夫说。“孩子继承了他们父母的疯狂。”当她哀叹自己的不幸，深信孩子们的狂野行为如同猪尾巴一样可怕时，奥雷里亚诺看了她一眼，让她感到一片迷茫。
 
-"Somebody is coming," he told her.<br />有人要来了，他告诉她。
+"Somebody is coming," he told her.<br />有人要来了，奥雷里亚诺告诉她。
 
-Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.
+Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.<br />乌尔苏拉
 
