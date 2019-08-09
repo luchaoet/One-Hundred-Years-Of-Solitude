@@ -22,11 +22,15 @@ While his father was putting the town in order and his mother was increasing the
 
 He had shot up so fast that in a short time the clothing left behind by his brother no longer fit him and he began to wear his father's, but Visitación had to sew pleats in the shirt and darts in the pants, because Aureliano had not sequined the corpulence of the others.<br />他的身体发育快速，哥哥的衣服不再合身，便开始穿父亲的衣服，只是需要维希塔西恩缝紧衬衫的活褶和裤子的死褶，因为奥雷里亚诺没有别人那么肥胖。
 
-Adolescence had taken away the softness of his voice and had made silent and definitely solitary, but, on the othand, it had restored the intense expression that he had had in his eyes when he was born. He concentrated so much on his experiments in silverwork that he scarcely left the laboratory to eat. 
+Adolescence had taken away the softness of his voice and had made silent and definitely solitary, but, on the other hand, it had restored the intense expression that he had had in his eyes when he was born. He concentrated so much on his experiments in silverwork that he scarcely left the laboratory to eat.<br />青春期带走了他柔和的嗓音，变得沉默寡言，吊形吊影，但是另一方面，他眼中恢复了出生时的紧张表情。他专心致志于银制品工艺的实验，几乎没有离开过实验室去吃饭。
 
-Worried ever his inner withdrawal, José Arcadio Buendía gave him the keys to the house and a little money, thinking that perhaps he needed a woman. But Aureliano spent the money on muriatic acid to prepare some aqua regia and he beautified the keys by plating them with gold. 
+Worried ever his inner withdrawal, José Arcadio Buendía gave him the keys to the house and a little money, thinking that perhaps he needed a woman. But Aureliano spent the money on muriatic acid to prepare some aqua regia and he beautified the keys by plating them with gold.<br />
 
-His excesses were hardly comparable to those of Arcadio and Amaranta, who had already begun to get their second teeth and still went about all day clutching at the Indians' cloaks, stubborn in their decision not to speak Spanish but the Guajiro language. "You shouldn't complain." úrsula told her husband. "Children inherit their parents' madness." And as she was lamenting her misfortune, convinced that the wild behavior of her children was something as fearful as a pig's tail, Aureliano gave a look that wrapped her in an atmosphere of uncertainty.
-"Somebody is coming," he told her.
-úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.
+His excesses were hardly comparable to those of Arcadio and Amaranta, who had already begun to get their second teeth and still went about all day clutching at the Indians' cloaks, stubborn in their decision not to speak Spanish but the Guajiro language. 
+
+"You shouldn't complain." Úrsula told her husband. "Children inherit their parents' madness." And as she was lamenting her misfortune, convinced that the wild behavior of her children was something as fearful as a pig's tail, Aureliano gave a look that wrapped her in an atmosphere of uncertainty.
+
+"Somebody is coming," he told her.<br />有人要来了，他告诉她。
+
+Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.
 
