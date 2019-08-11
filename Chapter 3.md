@@ -10,6 +10,14 @@ They were both so docile and willing to help that Úrsula took them on to help h
 
 Macondo had changed. The people who had come with Úrsula spread the news of the good quality of its soil and its privileged position with respect to the swamp, so that from the narrow village of past times it changed into an active town with stores and workshops and a permanent commercial route over which the first Arabs arrived with their baggy pants and rings in their ears, swapping glass beads for macaws.<br />马孔多变了，跟着乌尔苏拉过来的人四处宣传这里土地肥沃，地理位置比沼泽地优越，以至于这个往日狭小的村庄变成了一个熙熙攘攘的城镇，有了商店和工场，和一条永久的商业路线，第一批穿着布袋裤、戴着耳环的阿拉伯人通过这条路线来到这里，用玻璃珠交换金刚鹦鹉。
 
+José Arcadio Buendía did not have a moment's rest. Fascinated by an immediate reality that came to be more fantastic that the vast universe of his imagination, he lost all interest in the alchemist's laboratory, put to rest the material that had become attenuated with months of manipulation, and went back to being the enterprising man of earlier days when he had decided upon the layout of the streets and the location of the new houses so that no one would enjoy privileges that everyone did not have.<br />何塞·阿尔卡蒂奥·布恩迪亚没有片刻休息，着迷于眼前的现实，想象力的广阔空间变得更加的奇妙，对炼金术士的实验室失去了所有的兴趣。他将操作了几个月效力逐渐降低的材料搁置一旁，变回了创业之初那个富有进取心的男人，那是他规划街道和房屋位置，人人平等，没有人能享受到其他人没有的特权。
+
+He acquired such authority among the new arrivals that foundations were not laid or walls built without his being consulted, and it was decided that he should be the one in charge of the distribution of the land.<br />他在新来者人群中颇有权威，铺设地基、建造围墙都要找他征询意见，并且人们决定由他负责土地的分配。
+
+When the acrobat gypsies returned, with their vagabond carnival transformed now into a gigantic organization of games of luck and chance that José Arcadio would be coming back with them. <br />吉普赛杂技演员回来时，他们的流浪者狂欢节现在变成了一个大型赌场，何塞·阿尔卡迪奥将会和他们一起回来。
+
+But José Arcadio did not return,
+
 Emancipated for the moment at least from the torment of fantasy, José Arcadio Buendía in a short time set up a system of order and work which allowed for only one bit of license: the freeing of the birds, which, since the time of the founding, had made time merry with their flutes, and installing in their place musical clocks in every house.<br />至少从幻想的折磨中解脱出来的那一刻起，何塞·阿尔卡蒂奥·布恩迪亚在短时间内建立了一套秩序井然办事方法，只有一次被合法允许：放飞了自村庄建立以来的所有声音如长笛般的报时鸟，每家每户都安装了音乐时钟。
 
 They were wondrous clocks made of carved wood, which the Arabs had traded for macaws and which José Arcadio Buendía had synchronized with such precision that every half hour the town grew merry with the progressive chords of the same song until it reached the climax of a noontime that was as exact and unanimous as a complete waltz.<br />这些神奇的时钟由木头雕刻而成，是从阿拉伯人那里用金刚鹦鹉交易而来。何塞·阿尔卡蒂奥·布恩迪亚校准精确，每半小时镇上便响起了同一首曲子的欢快和弦，一到中午便达到高潮，与完整的华尔兹一样精准一致。
@@ -32,5 +40,5 @@ His excesses were hardly comparable to those of Arcadio and Amaranta, who had al
 
 "Somebody is coming," he told her.<br />有人要来了，奥雷里亚诺告诉她。
 
-Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.<br />每次他预言时，乌尔苏拉总是试图用家庭主妇的逻辑打破它。有人来是正常的，每天都会有几十个陌生人经过马孔多，并没有引起怀疑和不为人知的看法，尽管如此，除去所有的逻辑，奥雷里亚诺仍然确信自己的预言。
+Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.<br />每次他预言时，乌尔苏拉总是试图用家庭主妇的逻辑打破它。有人来是正常的，每天都会有几十个陌生人经过马孔多，并没有引起怀疑和外人不得而知的的意见，尽管如此，除去所有的逻辑，奥雷里亚诺仍然确信自己的预言。
 
