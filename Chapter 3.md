@@ -32,5 +32,5 @@ His excesses were hardly comparable to those of Arcadio and Amaranta, who had al
 
 "Somebody is coming," he told her.<br />有人要来了，奥雷里亚诺告诉她。
 
-Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.<br />乌尔苏拉
+Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.<br />每次他预言时，乌尔苏拉总是试图用家庭主妇的逻辑打破它。有人来是正常的，每天都会有几十个陌生人经过马孔多，并没有引起怀疑和，奥雷里亚诺确信自己的预言。
 
