@@ -14,9 +14,11 @@ José Arcadio Buendía did not have a moment's rest. Fascinated by an immediate 
 
 He acquired such authority among the new arrivals that foundations were not laid or walls built without his being consulted, and it was decided that he should be the one in charge of the distribution of the land.<br />他在新来者人群中颇有权威，铺设地基、建造围墙都要找他征询意见，并且人们决定由他负责土地的分配。
 
-When the acrobat gypsies returned, with their vagabond carnival transformed now into a gigantic organization of games of luck and chance that José Arcadio would be coming back with them. <br />吉普赛杂技演员回来时，他们的流浪者狂欢节现在变成了一个大型赌场，何塞·阿尔卡迪奥将会和他们一起回来。
+When the acrobat gypsies returned, with their vagabond carnival transformed now into a gigantic organization of games of luck and chance that José Arcadio would be coming back with them.<br />吉普赛杂技演员回来时，他们的流浪者狂欢节现在变成了一个大型赌场，何塞·阿尔卡迪奥将会和他们一起回来。
 
-But José Arcadio did not return,
+But José Arcadio did not return, nor did they come with the snakeman, who, according to what úrsula thought, was the only one who could tell them about their son, so the gypsies were not allowed to camp in town or set foot in it in the future, for they were considered the bearers of concupiscence and perversion.<br />
+
+José Arcadio Buendía, however, was explicit in maintaining that the old tribe of Melquíades, who had contributed so much to the growth of the village with his ageold wisdom and his fabulous inventions, would always find the gates open.But Melquíades' tribe, according to what the wanderers said, had been wiped off the face of the earth because they had gone beyond the limits of human knowledge.<br />
 
 Emancipated for the moment at least from the torment of fantasy, José Arcadio Buendía in a short time set up a system of order and work which allowed for only one bit of license: the freeing of the birds, which, since the time of the founding, had made time merry with their flutes, and installing in their place musical clocks in every house.<br />至少从幻想的折磨中解脱出来的那一刻起，何塞·阿尔卡蒂奥·布恩迪亚在短时间内建立了一套秩序井然办事方法，只有一次被合法允许：放飞了自村庄建立以来的所有声音如长笛般的报时鸟，每家每户都安装了音乐时钟。
 
