@@ -44,3 +44,19 @@ His excesses were hardly comparable to those of Arcadio and Amaranta, who had al
 
 Úrsula, as she did whenever he made a prediction, tried to break it down with her housewifely logic. It was normal for someone to be coming. Dozens of strangers came through Macondo every day without arousing suspicion or secret ideas. Nevertheless, beyond all logic, Aureliano was sure of his prediction.<br />每次他预言时，乌尔苏拉总是试图用家庭主妇的逻辑打破它。有人来是正常的，每天都会有几十个陌生人经过马孔多，并没有引起怀疑和外人不得而知的的意见，尽管如此，除去所有的逻辑，奥雷里亚诺仍然确信自己的预言。
 
+"I don't know who it will be," he insisted, "but whoever it is is already on the way."<br />“我不知道会是谁，”他坚持说，“不管是谁，都已经在路上了。”
+
+That Sunday, in fact, Rebeca arrived. She was only eleven years old. She had made the difficult trip from Manaure some hide dealers who had taken on the task of delivering her along with a letter to José Arcadio Buendía, but they could not explain precisely who the person was who had asked the favor. <br />果然，星期天丽贝卡来了，她只有十一岁。
+
+Entire baggage consisted of a small trunk, a little rocking chair with small hand-painted flowers, and a canvas sack which kept making a cloc-cloc-cloc sound, where she carried parents' bones. 
+
+The letter addressed to José Arcadio Buendía was written is very warm terms by someone who still loved him very much in spite of time and distance, and who felt obliged by a basic humanitarian feeling to do the charitable thing and send that poor unsheltered orphan, who was a second cousin of úrsula's and consequently also a relative of José Arcadio Buendía, although farther removed, because she was the daughter of that unforgettable friend Nicanor Ulloa and his very worthy wife Rebeca Montiel, may God keep them in His holy kingdom, whose remains the girl was carrying so that they might be given Christian burial. The names mentioned, as well as the signature on the letter, were perfectly legible, but neither José Arcadio, Buendía nor úrsula remembered having any relatives with those names, nor did they know anyone by the name of the sender of the letter, much less the remote village of Manaure. 
+
+It was impossible to obtain any further information from the girl. From the moment she arrived she had been sitting in the rocker, sucking her finger and observing everyone with her large, startled eyes without giving any sign of understanding what they were asking her. 
+
+She wore a diagonally striped dress that had been dyed black, worn by use, and a pair of scaly patent leather boots. Her hair was held behind her ears with bows of black ribbon. 
+
+She wore a scapular with the images worn away by sweat, and on her right wrist the fang of a carnivorous animal mounted on a backing of copper as an amulet against the evil eye. Her greenish skin, her stomach, round and tense as a drum. revealed poor health and hunger that were older than she was, but when they gave her something to eat she kept the plate on her knees without tasting anything. 
+
+They even began to think that she was a deafmute until the Indians asked her in their language if she wanted some water and she moved her eyes as if she recognized them and said yes with her head.
+
