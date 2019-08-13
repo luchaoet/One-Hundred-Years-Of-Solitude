@@ -52,7 +52,7 @@ Having completely abandoned his domestic obligations, he spent entire nights in 
 
 When he became an expert in the use and manipulation of his instruments, he conceived a notion of space that allowed him to navigate across unknown seas, to visit uninhabited territories, and to establish relations with splendid beings without having to leave his study. <br />当他能够熟练操作他的仪器后，他构想了一个空间的概念。足不出户，就能航行在未知的海域，探索荒无人烟的土地，与珍禽异兽交流。
 
-That was the period in which he acquired the habit of talking to himself, of walking through the house without paying attention to anyone, as Úrsula and the children broke their backs in the garden, growing banana and caladium, cassava and yams, ahuyama roots and eggplants.<br />那段时间他养成了自言自语的习惯，在房间里旁若无人的走来走去。乌尔苏拉和孩子们在菜园子里忙得腰酸背痛，悉心照料香蕉，芋头，木薯，山药，ahuyama roots？？？和茄子。
+That was the period in which he acquired the habit of talking to himself, of walking through the house without paying attention to anyone, as Úrsula and the children broke their backs in the garden, growing banana and caladium, cassava and yams, ahuyama roots and eggplants.<br />那段时间他养成了自言自语的习惯，在房间里旁若无人的走来走去。乌尔苏拉和孩子们在菜园子里忙得腰酸背痛，悉心照料香蕉，芋头，木薯，山药，ahuyama roots和茄子。
 
 Suddenly, without warning, his feverish activity was interrupted and was replaced by a kind of fascination. He spent several days as if he were bewitched, softly repeating to himself a string of fearful conjectures without giving credit to his own understanding.<br />突然，没有任何预示，他狂热的举动停止了，陷入痴迷，好几天好像着了魔似的，轻轻的重复他的可怕猜想，自己都不相信。
 
@@ -74,7 +74,7 @@ It was, in reality, the result of multiple and rare diseases contracted on his i
 
 He was a fugitive from all the plagues and catastrophes that had ever lashed mankind. He had survived pellagra in Persia, scurvy in the Malayan archipelago, leprosy in Alexandria, beriberi in Japan, bubonic plague in Madagascar, an earthquake in Sicily, and a disastrous shipwreck in the Strait of Magellan.<br />他从危害人类的鼠疫和灾难中幸存了下来，在波斯得过玉米红斑病，在马来西亚群岛得过坏血病，在亚历山大得过麻风病，在日本染上脚气病，在马达加斯加得过鼠疫，在西西里岛遭遇过地震，在麦哲伦海峡遭遇过海难。
 
-That prodigious creature, said to possess the keys of Nostradamus, was a gloomy man, enveloped in a sad aura, with an Asiatic look that seemed to know what there was on the other side of things. <br />这个坚强的男人说他知晓Nostradamus？？？的秘密，此人沉默阴郁，笼罩在悲伤的光环之中，一副洞悉事务另一面的亚洲人模样。
+That prodigious creature, said to possess the keys of Nostradamus, was a gloomy man, enveloped in a sad aura, with an Asiatic look that seemed to know what there was on the other side of things. <br />这个坚强的男人说他知晓诺查丹玛斯（法国籍犹太裔预言家）的秘密，此人沉默阴郁，笼罩在悲伤的光环之中，一副洞悉事务另一面的亚洲人模样。
 
 He wore a large black hat that looked like a raven with widespread wings, and a velvet vest across which the patina of the centuries had skated.<br />他戴着一顶又大又黑的帽子，宛如翅膀宽大的乌鸦，穿着丝绒背心，上面布满几个世纪的铜绿。<br /> <br />But in spite of his immense wisdom and his mysterious breadth, he had a human burden, an earthly condition that kept him involved in the small problems of daily life.<br />尽管拥有无穷的智慧和神秘的知识宽度，但毕竟是凡人之躯，被生活琐事的烦恼所困扰。
 
