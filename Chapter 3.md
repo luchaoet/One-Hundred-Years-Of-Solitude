@@ -52,13 +52,15 @@ Entire baggage consisted of a small trunk, a little rocking chair with small han
 
 The letter addressed to José Arcadio Buendía was written is very warm terms by someone who still loved him very much in spite of time and distance, and who felt obliged by a basic humanitarian feeling to do the charitable thing and send that poor unsheltered orphan, who was a second cousin of úrsula's and consequently also a relative of José Arcadio Buendía, although farther removed, because she was the daughter of that unforgettable friend Nicanor Ulloa and his very worthy wife Rebeca Montiel, may God keep them in His holy kingdom, whose remains the girl was carrying so that they might be given Christian burial.<br />这封写给何塞·阿尔卡蒂奥·布恩迪亚的信出自一个温情之人，尽管时间和距离的阻隔，他仍然非常爱他。基本的人道主义让他必须这么做这件慈善之事————送来这个无家可归的可怜孤儿。他是乌尔苏拉的第二个表兄弟，所以也是何塞·阿尔卡蒂奥·布恩迪亚的亲戚，尽管关系疏远。因为她是念念不忘的朋友尼康诺·努尔和其非常贤惠的妻子的女儿，愿上帝在神圣的国度里保佑他们，女孩带来的遗骸能给予一个基督教的葬礼。
 
-The names mentioned, as well as the signature on the letter, were perfectly legible, but neither José Arcadio, Buendía nor úrsula remembered having any relatives with those names, nor did they know anyone by the name of the sender of the letter, much less the remote village of Manaure.<br />信中提及的名字和信封上的签名都非常的清晰，但是何塞·阿尔卡蒂奥·布恩迪亚和乌尔苏拉都不记得有这些名字的亲戚。
+The names mentioned, as well as the signature on the letter, were perfectly legible, but neither José Arcadio, Buendía nor úrsula remembered having any relatives with those names, nor did they know anyone by the name of the sender of the letter, much less the remote village of Manaure.<br />信中提及的名字和签名都非常的清晰，但是何塞·阿尔卡蒂奥·布恩迪亚和乌尔苏拉都不记得有这些名字的亲戚，也不认识信的寄件人，更别说玛纳乌勒这个遥远的乡村。
 
-It was impossible to obtain any further information from the girl. From the moment she arrived she had been sitting in the rocker, sucking her finger and observing everyone with her large, startled eyes without giving any sign of understanding what they were asking her.<br />
+It was impossible to obtain any further information from the girl. From the moment she arrived she had been sitting in the rocker, sucking her finger and observing everyone with her large, startled eyes without giving any sign of understanding what they were asking her.<br />从女孩身上也无法获得任何进一步的信息。从她来了以后就一直坐在摇椅上，吸吮着手指，用惊愕的大眼睛观察着每个人，对于人们的询问一副不解的样子。
 
 She wore a diagonally striped dress that had been dyed black, worn by use, and a pair of scaly patent leather boots. Her hair was held behind her ears with bows of black ribbon.<br />她穿着被染黑了的斜条纹的连衣裙，已经破旧了，一双脱了皮的皮靴。她的头发用一个黑色的蝴蝶结扎在耳朵后面。
 
-She wore a scapular with the images worn away by sweat, and on her right wrist the fang of a carnivorous animal mounted on a backing of copper as an amulet against the evil eye. Her greenish skin, her stomach, round and tense as a drum. revealed poor health and hunger that were older than she was, but when they gave her something to eat she kept the plate on her knees without tasting anything. 
+She wore a scapular with the images worn away by sweat, and on her right wrist the fang of a carnivorous animal mounted on a backing of copper as an amulet against the evil eye.<br />身上肩衣的图案已被磨损，右手腕上戴着一个铜币，上面装着一枚食肉动物的犬牙，当作抵抗“邪恶之眼”的护身符。
 
-They even began to think that she was a deafmute until the Indians asked her in their language if she wanted some water and she moved her eyes as if she recognized them and said yes with her head.
+Her greenish skin, her stomach, round and tense as a drum, revealed poor health and hunger that were older than she was, but when they gave her something to eat she kept the plate on her knees without tasting anything.<br />皮肤浅绿，肚子像鼓一样又圆又紧，表明了长期处于不健康与饥饿中。但是当他们给她一些吃食时，她把盘子放在膝盖上，没有品尝任何东西。
+
+They even began to think that she was a deafmute until the Indians asked her in their language if she wanted some water and she moved her eyes as if she recognized them and said yes with her head.<br />他们甚至开始认为她是一个聋哑人，直到印第安人用他们的语言询问她是否需要喝点水时，她的眼睛一动，方法认出了他们，随即点了点头。
 
