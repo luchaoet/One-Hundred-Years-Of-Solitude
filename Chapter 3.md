@@ -62,5 +62,26 @@ She wore a scapular with the images worn away by sweat, and on her right wrist t
 
 Her greenish skin, her stomach, round and tense as a drum, revealed poor health and hunger that were older than she was, but when they gave her something to eat she kept the plate on her knees without tasting anything.<br />皮肤浅绿，肚子像鼓一样又圆又紧，表明了长期处于不健康与饥饿中。但是当他们给她一些吃食时，她把盘子放在膝盖上，没有品尝任何东西。
 
-They even began to think that she was a deafmute until the Indians asked her in their language if she wanted some water and she moved her eyes as if she recognized them and said yes with her head.<br />他们甚至开始认为她是一个聋哑人，直到印第安人用他们的语言询问她是否需要喝点水时，她的眼睛一动，方法认出了他们，随即点了点头。
+They even began to think that she was a deafmute until the Indians asked her in their language if she wanted some water and she moved her eyes as if she recognized them and said yes with her head.<br />他们甚至开始认为她是一个聋哑人，直到印第安人用他们的语言询问她是否需要喝点水时，她的眼睛一动，仿佛认出了他们，随即点了点头。
 
+They kept her, because there was nothing else they could do. They decided to call her Rebeca, which according to the letter was her mother's name, because Aureliano had the patience to read to her the names of all the saints and he did not get a reaction from any one of them.<br />他们留下了她，除此之外也无能为力。奥雷里亚诺耐心地读完所有圣徒的名字，她毫无反应。所有根据她母亲的名字，他们决定称她为“丽贝卡”。
+
+Since there was no cemetery in Macondo at that time, for no one had died up till then, they kept the bag of bones to wait for a worthy place of burial, and for a long time it got in the way everywhere and would be found where least expected, always with its clucking of a broody hen.<br />在那之前马孔多还没有人去世，所以当时还没有墓地。他们保存好装有遗骨的袋子，等待一个好的埋葬之地。很长一段时间，它们到处碍事，总是出现在意想不到的地方，不时发出母鸡抱窝时一样的咯咯声。
+
+A long time passed before Rebeca became incorporated into the life of the family. She would sit in her small rocker sucking her finger in the most remote corner of the house. Nothing attracted her attention except the music of the clocks, which she would look for every half hour with her frightened eyes as if she hoped to find it someplace in the air.<br />丽贝卡很长时间才融入到这个家庭的生活，她总是在家里最偏僻的角落，坐在自己的小摇椅上，吸吮着手指。没有什么能吸引她的注意，除了钟表的报时音乐，每隔半小时她都瞪着惊恐的眼睛四处寻找，仿佛想在空中某处位置找到音乐。
+
+They could not get her to eat for several days. No one understood why she had not died of hunger until the Indians, who were aware of everything, for they went ceaselessly about the house on their stealthy feet, discovered that Rebeca only liked to eat the damp earth of the courtyard and the cake of whitewash that she picked of the walls with her nails.<br />他们发现她几天都没有吃饭，没人能想通她为什么没被饿死，直到印第安人秘密而无休止地在家里走来走去，观察着每个地方，发现丽贝卡只喜欢吃院子里潮湿的泥土和用指甲从墙上扣下来的石灰皮。
+
+It was obvious that her parents, or whoever had raised her, had scolded her for that habit because she did it secretively and with a feeling of guilt, trying to put away supplies so that she could eat when no one was looking. From then on they put her under an implacable watch.<br />显然，她的父母或者其他抚养过她的人因这一恶习责骂过她，因为她是秘密而为，并且心中有愧，藏起吃食，在无人注意的时候吃掉。从那以后，她被严格监视了。
+
+They threw cow gall onto the courtyard and, rubbed hot chili on the walls, thinking they could defeat her pernicious vice with those methods, but she showed such signs of astuteness and ingenuity to find some earth that úrsula found herself forced to use more drastic methods. 
+
+She put some orange juice and rhubarb into a pan that she left in the dew all night and she gave her the dose the following day on an empty stomach. Although no one had told her that it was the specific remedy for the vice of eating earth, she thought that any bitter substance in an empty stomach would have to make the liver react. 
+
+Rebeca was so rebellious and strong in spite of her frailness that they had to tie her up like a calf to make her swallow the medicine, they could barely keep back her kicks or bear up under the strange hieroglyphics that she alternated with her bites and spitting, and that, according to what the scandalized Indians said, were the vilest obscenities that one could ever imagine in their language. 
+
+When úrsula discovered that, she added whipping to the treatment. It was never established whether it was the rhubarb or the beatings that had effect, or both of them together, but the truth was that in a few weeks Rebeca began to show signs of recovery. She took part in the games of Arcadio and Amaranta, who treated her like an older sister, and she ate heartily, using the utensils properly. 
+
+It was soon revealed that she spoke Spanish with as much fluency as the Indian language, that she had a remarkable ability for manual work, and that she could sing the waltz of the clocks with some very funny words that she herself had invented. It did not take long for them to consider her another member of the family. 
+
+She was more affectionate to Úrsula than any of her own children had been, and she called Arcadio, Amaranta brother and sister, Aureliano uncle, and José Arcadio Buendía grandpa. So that she finally deserved, as much as the others, the name of Rebeca Buendía, the only one that she ever had and that she bore with dignity until her death.
