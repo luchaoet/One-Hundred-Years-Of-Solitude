@@ -72,7 +72,7 @@ A long time passed before Rebeca became incorporated into the life of the family
 
 They could not get her to eat for several days. No one understood why she had not died of hunger until the Indians, who were aware of everything, for they went ceaselessly about the house on their stealthy feet, discovered that Rebeca only liked to eat the damp earth of the courtyard and the cake of whitewash that she picked of the walls with her nails.<br />他们发现她几天都没有吃饭，没人能想通她为什么没被饿死，直到印第安人秘密而无休止地在家里走来走去，观察着每个地方，发现丽贝卡只喜欢吃院子里潮湿的泥土和用指甲从墙上扣下来的石灰皮。
 
-It was obvious that her parents, or whoever had raised her, had scolded her for that habit because she did it secretively and with a feeling of guilt, trying to put away supplies so that she could eat when no one was looking. From then on they put her under an implacable watch.<br />显然，她的父母或者其他抚养过她的人因这一恶习责骂过她，因为她是秘密而为，并且心中有愧，藏起吃食，在无人注意的时候吃掉。从那以后，她被严格监视了。
+It was obvious that her parents, or whoever had raised her, had scolded her for that habit because she did it secretively and with a feeling of guilt, trying to put away supplies so that she could eat when no one was looking. From then on they put her under an implacable watch.<br />显然，她的父母或者其他抚养过她的人因这一恶习责骂过她，因为她秘密而为，心怀愧疚。藏起吃食，在无人注意的时候吃掉。从那以后，她被严格监视了。
 
 They threw cow gall onto the courtyard and, rubbed hot chili on the walls, thinking they could defeat her pernicious vice with those methods, but she showed such signs of astuteness and ingenuity to find some earth that úrsula found herself forced to use more drastic methods. 
 
