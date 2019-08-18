@@ -96,4 +96,6 @@ Cataure, the Indian, was gone from the house by morning. His sister stayed becau
 
 She meant that when the sick person became used to his state of vigil, the recollection of his childhood began to be erased from his memory, then the name and notion of things, and finally the identity of people and even the awareness of his own being, until he sank into a kind of idiocy that had no past.<br />她的意思是，当病人习惯了失眠状态，童年回忆便开始从记忆中消失，然后是事物的名称和概念，最后是人的身份，甚至是自己的意识，直到沦陷到没有过去的糊涂之中。
 
-José Arcadio Buendía, dying with laughter, thought that it was just a question of one of the many illnesses invented by the Indians' superstitions. But úrsula, just to be safe, took the precaution of isolating Rebeca from the other children.<br />何塞·阿尔卡蒂奥·布恩迪亚
+José Arcadio Buendía, dying with laughter, thought that it was just a question of one of the many illnesses invented by the Indians' superstitions. But Úrsula, just to be safe, took the precaution of isolating Rebeca from the other children.<br />何塞·阿尔卡蒂奥·布恩迪亚差点笑死，认为这只是众多疾病中印第安迷信编造出来的一个问题。但是乌尔苏拉为了安全起见，做了个预防措施，将丽贝卡和其他孩子隔离开来。
+
+After severval weeks, when Visitación's terror seemed to have died down, José Arcadio Buendía found himself rolling over in bed, unable to fall asleep. Úrsula, who had also awakened, asked him what was wrong, and he answered: "I'm thinking about Prudencio Aguilar again." They did not sleep a minute, but the following day they felt so rested that they forget about the bad night.<br />几周以后，当维希塔西恩的恐惧似乎消失了时，何塞·阿尔卡蒂奥·布恩迪亚发现自己在床上翻来覆去，无法安睡。乌尔苏拉被吵醒了，问他出了什么问题，他回答说他又想起了普鲁登西奥·阿吉拉尔。他们一分钟也没睡，但是第二天他们感觉精力充沛，便忘了这个糟糕的夜晚。
