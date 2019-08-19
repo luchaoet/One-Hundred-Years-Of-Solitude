@@ -100,9 +100,9 @@ José Arcadio Buendía, dying with laughter, thought that it was just a question
 
 After severval weeks, when Visitación's terror seemed to have died down, José Arcadio Buendía found himself rolling over in bed, unable to fall asleep. Úrsula, who had also awakened, asked him what was wrong, and he answered: "I'm thinking about Prudencio Aguilar again." They did not sleep a minute, but the following day they felt so rested that they forget about the bad night.<br />几周以后，当维希塔西恩的恐惧似乎消失了时，何塞·阿尔卡蒂奥·布恩迪亚发现自己在床上翻来覆去，无法安睡。乌尔苏拉被吵醒了，问他出了什么问题，他回答说他又想起了普鲁登西奥·阿吉拉尔。他们一分钟也没睡，但是第二天他们感觉精力充沛，便忘了这个糟糕的夜晚。
 
-Arcadio commented with surprise at lunchtime that he felt very well in spite of the fact that he had spent the whole night in the laboratory gilding a brooch that he planned to give to Úrsula for her birthday. They did not become alarmed until the third day, when no one felt sleepy at bedtime and they realized that they had gone more that fifty hours without sleeping.
+Arcadio commented with surprise at lunchtime that he felt very well in spite of the fact that he had spent the whole night in the laboratory gilding a brooch that he planned to give to Úrsula for her birthday. They did not become alarmed until the third day, when no one felt sleepy at bedtime and they realized that they had gone more that fifty hours without sleeping.<br />午餐时间，阿尔卡蒂奥惊讶地评论说，尽管整夜呆在实验室做一个计划乌尔苏拉生日时送给她的胸针，但他感觉依然很好。直到第三天他们都没有感到惊慌，当他们躺在床上却毫无睡意时，于是意识到他们已经超过五十个小时没有睡觉了。
 
-"The children are awake too," the Indian said with her fatalistic conviction. "Once it gets into a house no one can escape the plague."
+"The children are awake too," the Indian said with her fatalistic conviction. "Once it gets into a house no one can escape the plague."<br />“孩子们也醒着,”印第安人带着宿命论的信念说，“一旦进入房间，没人可以逃脱瘟疫。”
 
 They had indeed contracted the illness of insomnia. úrsula, who had learned from her mother the medicinal value plants, prepared and made them all drink a brew of monkshood, but they could not get to sleep and spent the whole day dreaming on their feet. In that state hallucinated lucidity, not only did they see the images of their own dreams, but some saw the images dreamed by others. 
 
