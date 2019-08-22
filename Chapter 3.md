@@ -28,7 +28,7 @@ It was also José Arcadio Buendía who decided during those years that they shou
 
 Many years later, when Macondo was a field of wooden houses with zinc roofs, the broken and dusty almond trees still stood on the oldest streets, although no one knew who had planted them.<br />许多年以后，马孔多遍布镀锌屋顶的木屋，残败满是灰尘的杏仁树依旧矗立在古老的街道，尽管没人知道它们是由谁种植的。
 
-While his father was putting the town in order and his mother was increasing their wealth with her marvelous business of candied little roosters and fish, which left the house twice a day strung along sticks of balsa wood, Aureliano spent interminable hours in the abandoned laboratory, learning the art of silverwork by his own experimentation.<br />父亲有序地整治城镇，母亲售卖小公鸡小鱼形状的蜜饯，通过这一非同一般的生意来提升财富，将蜜饯系在巴尔萨木棍上，每天两次出门兜售。奥雷里亚诺则经年累月地呆在废弃的实验室，通过自己的实验学习银制工艺。
+While his father was putting the town in order and his mother was increasing their wealth with her marvelous business of candied little roosters and fish, which left the house twice a day strung along sticks of balsa wood, Aureliano spent interminable hours in the abandoned laboratory, learning the art of silverwork by his own experimentation.<br />父亲有序地整治城镇，母亲售卖小公鸡小鱼形状的蜜饯，通过这一非同一般的生意来提升财富，将蜜饯系在巴尔萨木棍上，每天两次出门兜售。奥雷里亚诺则经年累月地呆在废弃的实验室，通过自己的实验学习银制品工艺。
 
 He had shot up so fast that in a short time the clothing left behind by his brother no longer fit him and he began to wear his father's, but Visitación had to sew pleats in the shirt and darts in the pants, because Aureliano had not sequined the corpulence of the others.<br />他的身体发育快速，哥哥的衣服不再合身，便开始穿父亲的衣服，只是需要维希塔西恩缝紧衬衫的活褶和裤子的死褶，因为奥雷里亚诺没有其他人那么肥胖。
 
@@ -124,11 +124,13 @@ All strangers who passed through the streets of Macondo at that time had to ring
 
 In that way they kept the plague restricted to the perimeter of the town. So effective was the quarantine that the day came when the emergency situation was accepted as a natural thing and life was organized in such a way that work picked up its rhythm again and no one worried any more about the useless habit of sleeping.<br />通过这种方式，他们将瘟疫限制在小镇周边范围内。隔离非常的奏效，这种紧急状态大家已习以为常，生活步入正轨，工作再次恢复节奏，没有人再担心失去无益的睡眠习惯。
 
-It was Aureliano who conceived the formula that was to protect them against loss of memory for several months. He discovered it by chance. An expert insomniac, having been one of the first, he had learned the art of silverwork to perfection. One day he was looking for the small anvil that he used for laminating metals and he could not remember its name. 
+It was Aureliano who conceived the formula that was to protect them against loss of memory for several months. He discovered it by chance. An expert insomniac, having been one of the first, he had learned the art of silverwork to perfection. One day he was looking for the small anvil that he used for laminating metals and he could not remember its name.<br />几个月来，奥雷里亚诺想出了保护大家防止遗忘的主意，他是在偶然中发现的。作为第一批失眠症的资深患者，他完全掌握了银制品工艺。一天他正在寻找小号的铁砧（锻捶金属用的垫座），用于金属压层，但是忘了它的名称。
 
-His father told him: "Stake." Aureliano wrote the name on a piece of paper that he pasted to the base of the small anvil: stake. In that way he was sure of not forgetting it in the future. It did not occur to him that this was the first manifestation of a loss of memory, because the object had a difficult name to remember. 
+His father told him: "Stake." Aureliano wrote the name on a piece of paper that he pasted to the base of the small anvil: stake. In that way he was sure of not forgetting it in the future. It did not occur to him that this was the first manifestation of a loss of memory, because the object had a difficult name to remember.<br />父亲告诉他是“铁桩”，奥雷里亚诺把这个名称写在一张纸上，并把它贴在小号铁砧的底部。通过这种方式他确信以后再也不会忘记，他也没发觉这是遗忘的第一个表现，因为这玩意儿确实有个难记的名称。
 
-But a few days later be, discovered that he had trouble remembering almost every object in the laboratory. Then he marked them with their respective names so that all he had to do was read the inscription in order to identify them. When his fattold him about his alarm at having forgotten even the most impressive happenings of his childhood, Aureliano explained his method to him, and José Arcadio Buendía put it into practice all through the house and later on imposed it on the whole village. 
+But a few days later be, discovered that he had trouble remembering almost every object in the laboratory. Then he marked them with their respective names so that all he had to do was read the inscription in order to identify them.<br />几天后，他发现自己很难记住实验室里每件东西的名称，于是他用它们各自的名称做好标记。
+
+When his fattold him about his alarm at having forgotten even the most impressive happenings of his childhood, Aureliano explained his method to him, and José Arcadio Buendía put it into practice all through the house and later on imposed it on the whole village. 
 
 With an inked brush he marked everything with its name: table, chair, clock, door, wall, bed, pan. He went to the corral and marked the animals and plants: cow, goat, pig, hen, cassava, caladium, banana. Little by little, studying the infinite possibilities of a loss of memory, he realized that the day might come when things would be recognized by their inscriptions but that no one would remember their use. Then he was more explicit. 
 
