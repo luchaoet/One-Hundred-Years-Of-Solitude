@@ -128,9 +128,9 @@ It was Aureliano who conceived the formula that was to protect them against loss
 
 His father told him: "Stake." Aureliano wrote the name on a piece of paper that he pasted to the base of the small anvil: stake. In that way he was sure of not forgetting it in the future. It did not occur to him that this was the first manifestation of a loss of memory, because the object had a difficult name to remember.<br />父亲告诉他是“铁桩”，奥雷里亚诺把这个名称写在一张纸上，并把它贴在小号铁砧的底部。通过这种方式他确信以后再也不会忘记，他也没发觉这是遗忘的第一个表现，因为这玩意儿确实有个难记的名称。
 
-But a few days later be, discovered that he had trouble remembering almost every object in the laboratory. Then he marked them with their respective names so that all he had to do was read the inscription in order to identify them.<br />几天后，他发现自己很难记住实验室里每件东西的名称，于是他用它们各自的名称做好标记。
+But a few days later be, discovered that he had trouble remembering almost every object in the laboratory. Then he marked them with their respective names so that all he had to do was read the inscription in order to identify them.<br />几天后，他发现自己很难记住实验室里每件东西的名称，于是他用它们各自的名称做好标记，以至于为了辨别它们不得不阅读纸上的文字。
 
-When his fattold him about his alarm at having forgotten even the most impressive happenings of his childhood, Aureliano explained his method to him, and José Arcadio Buendía put it into practice all through the house and later on imposed it on the whole village. 
+When his father told him about his alarm at having forgotten even the most impressive happenings of his childhood, Aureliano explained his method to him, and José Arcadio Buendía put it into practice all through the house and later on imposed it on the whole village.<br />
 
 With an inked brush he marked everything with its name: table, chair, clock, door, wall, bed, pan. He went to the corral and marked the animals and plants: cow, goat, pig, hen, cassava, caladium, banana. Little by little, studying the infinite possibilities of a loss of memory, he realized that the day might come when things would be recognized by their inscriptions but that no one would remember their use. Then he was more explicit. 
 
