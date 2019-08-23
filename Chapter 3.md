@@ -64,7 +64,7 @@ Her greenish skin, her stomach, round and tense as a drum, revealed poor health 
 
 They even began to think that she was a deafmute until the Indians asked her in their language if she wanted some water and she moved her eyes as if she recognized them and said yes with her head.<br />他们甚至开始认为她是一个聋哑人，直到印第安人用他们的语言询问她是否需要喝点水时，她的眼睛一动，仿佛认出了他们，随即点了点头。
 
-They kept her, because there was nothing else they could do. They decided to call her Rebeca, which according to the letter was her mother's name, because Aureliano had the patience to read to her the names of all the saints and he did not get a reaction from any one of them.<br />他们留下了她，除此之外也无能为力。奥雷里亚诺耐心地读完所有圣徒的名字，她毫无反应。所有根据她母亲的名字，他们决定称她为“丽贝卡”。
+They kept her, because there was nothing else they could do. They decided to call her Rebeca, which according to the letter was her mother's name, because Aureliano had the patience to read to her the names of all the saints and he did not get a reaction from any one of them.<br />他们留下了她，除此之外也无能为力。奥雷里亚诺耐心地读完所有圣徒的名字，她毫无反应。所以根据她母亲的名字，他们决定称她为“丽贝卡”。
 
 Since there was no cemetery in Macondo at that time, for no one had died up till then, they kept the bag of bones to wait for a worthy place of burial, and for a long time it got in the way everywhere and would be found where least expected, always with its clucking of a broody hen.<br />在那之前马孔多还没有人去世，所以当时还没有墓地。他们保存好装有遗骨的袋子，等待一个好的埋葬之地。很长一段时间，它们到处碍事，总是出现在意想不到的地方，不时发出母鸡抱窝时一样的咯咯声。
 
@@ -130,9 +130,9 @@ His father told him: "Stake." Aureliano wrote the name on a piece of paper that 
 
 But a few days later be, discovered that he had trouble remembering almost every object in the laboratory. Then he marked them with their respective names so that all he had to do was read the inscription in order to identify them.<br />几天后，他发现自己很难记住实验室里每件东西的名称，于是他用它们各自的名称做好标记，以至于为了辨别它们不得不阅读纸上的文字。
 
-When his father told him about his alarm at having forgotten even the most impressive happenings of his childhood, Aureliano explained his method to him, and José Arcadio Buendía put it into practice all through the house and later on imposed it on the whole village.<br />
+When his father told him about his alarm at having forgotten even the most impressive happenings of his childhood, Aureliano explained his method to him, and José Arcadio Buendía put it into practice all through the house and later on imposed it on the whole village.<br />父亲把自己忧虑告诉了奥雷里亚诺，说他甚至忘记了童年最美好的事情，奥雷里亚诺向他说明了自己的方法。何塞·阿尔卡蒂奥·布恩迪亚首先在家里付诸行动，后来这种方法推行到了整个小镇。
 
-With an inked brush he marked everything with its name: table, chair, clock, door, wall, bed, pan. He went to the corral and marked the animals and plants: cow, goat, pig, hen, cassava, caladium, banana. Little by little, studying the infinite possibilities of a loss of memory, he realized that the day might come when things would be recognized by their inscriptions but that no one would remember their use. Then he was more explicit. 
+With an inked brush he marked everything with its name: table, chair, clock, door, wall, bed, pan. He went to the corral and marked the animals and plants: cow, goat, pig, hen, cassava, caladium, banana. Little by little, studying the infinite possibilities of a loss of memory, he realized that the day might come when things would be recognized by their inscriptions but that no one would remember their use. Then he was more explicit.<br />他用签字笔标识每件物品的名字：桌子、椅子、时钟、门、墙、床、锅。他走进畜栏，标识动植物：牛、羊、猪、母鸡、木薯、香蕉。逐渐地，在研究遗忘的无限可能性过程中，他意识到即使通过文字认识东西，有朝一日也会忘记它们的用途。
 
 The sign that he hung on the neck of the cow was an exemplary proof of the way in which the inhabitants of Macondo were prepared to fight against loss of memory: This is the cow. She must be milked every morning so that she will produce milk, and the milk must be boiled in order to be mixed with coffee to make coffee and milk. 
 
