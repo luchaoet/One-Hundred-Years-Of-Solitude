@@ -140,7 +140,7 @@ Thus they went on living in a reality that was slipping away, momentarily captur
 
 At the beginning of the road into the swamp they put up a sign that said MACONDO and another larger one on the main street that said GOD EXISTS. In all the houses keys to memorizing objects and feelings had been written.<br />在通往沼泽地的路口，他们竖起一个牌子，上面写着：马孔多；在主干街道上还有一个更大的牌子，上面写着：上帝存在。每家每户都写着记住物品和情感的要点。
 
-But the system demanded so much vigilance and moral strength that many succumbed to the spell of an imaginary reality, one invented by themselves, which was less practical for them but more comforting. Pilar Ternera was the one who contributed most to popularize that mystification when she conceived the trick of reading the past in cards as she had read the future before. 
+But the system demanded so much vigilance and moral strength that many succumbed to the spell of an imaginary reality, one invented by themselves, which was less practical for them but more comforting. Pilar Ternera was the one who contributed most to popularize that mystification when she conceived the trick of reading the past in cards as she had read the future before. <br />但是这套系统需要高度的警觉和道德力量，以至于很多人抵挡不住虚拟现实的魅力，自我幻想，虽不切实际，但令人安慰。皮拉尔·特尔内拉是推广这种故弄玄虚贡献最大的人。
 
 By means of that recourse the insomniacs began to live in a world built on the uncertain alternatives of the cards, where a father was remembered faintly as the dark man who had arrived at the beginning of April and a mother was remembered only as the dark woman who wore a gold ring on her left hand, and where a birth date was reduced to the last Tuesday on which a lark sang in the laurel tree. 
 
