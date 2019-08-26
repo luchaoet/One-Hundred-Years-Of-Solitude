@@ -150,7 +150,7 @@ He conceived of it as a spinning dictionary that a person placed on the axis cou
 
 Visitación did not recognize him when she opened the door she thought he had come with the idea of selling something, unaware that nothing could be sold in a town that was sinking irrevocably into the quick-sand of forgetfulness.<br />维希塔西恩打开门的时候并没有认出他，以为他来这售卖东西，却没有察觉到这个深陷失忆流沙中的小镇无物可卖。
 
-He was a decrepit man. Although his voice was also broken by uncertainty and his hands seemed to doubt the existence of things, it was evident that he came from the world where men could still sleep and remember. 
+He was a decrepit man. Although his voice was also broken by uncertainty and his hands seemed to doubt the existence of things, it was evident that he came from the world where men could still sleep and remember.<br />老人年迈体弱，尽管嗓音断断续续，双手摸摸索索，显然他来自一个人们依旧可以睡觉和记忆的世界。
 
 José Arcadio Buendía found him sitting in the living room fanning himself with a patched black hat as he read with compassionate attention the signs pasted to the walls. He greeted him with a broad show of affection, afraid that he had known him at another time and that he did not remember him now. 
 
