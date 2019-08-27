@@ -152,10 +152,38 @@ Visitación did not recognize him when she opened the door she thought he had co
 
 He was a decrepit man. Although his voice was also broken by uncertainty and his hands seemed to doubt the existence of things, it was evident that he came from the world where men could still sleep and remember.<br />老人年迈体弱，尽管嗓音断断续续，双手摸摸索索，显然他来自一个人们依旧可以睡觉和记忆的世界。
 
-José Arcadio Buendía found him sitting in the living room fanning himself with a patched black hat as he read with compassionate attention the signs pasted to the walls. He greeted him with a broad show of affection, afraid that he had known him at another time and that he did not remember him now. 
+José Arcadio Buendía found him sitting in the living room fanning himself with a patched black hat as he read with compassionate attention the signs pasted to the walls. He greeted him with a broad show of affection, afraid that he had known him at another time and that he did not remember him now.<br />何塞·阿尔卡蒂奥·布恩迪亚发现他坐在客厅，用打着补丁的黑色帽子扇着风，充满同情地看着贴在墙上的字条。何塞·阿尔卡蒂奥·布恩迪亚非常热情地迎接了他，害怕自己以前认识他，只是如今已不记得他了。
 
-But the visitor was aware his falseness, He felt himself forgotten, not with the irremediable forgetfulness of the heart, but with a different kind of forgetfulness, which was more cruel and irrevocable and which he knew very well because it was the forgetfulness of death. 
+But the visitor was aware his falseness, He felt himself forgotten, not with the irremediable forgetfulness of the heart, but with a different kind of forgetfulness, which was more cruel and irrevocable and which he knew very well because it was the forgetfulness of death.<br />来访者察觉到了他的伪装，并感觉到了自己已被遗忘。他非常清楚这不是内心暂时的遗忘，而是一种不同的，更加残酷和无法挽回的遗忘，因为这是对死亡的遗忘。
 
-Then he understood. He opened the suitcase crammed with indecipherable objects and from among then he took out a little case with many flasks. He gave José Arcadio Buendía a drink of a gentle color and the light went on in his memory. 
+Then he understood. He opened the suitcase crammed with indecipherable objects and from among then he took out a little case with many flasks. He gave José Arcadio Buendía a drink of a gentle color and the light went on in his memory.<br />于是便明白了，他打开装满不知道什么东西的手提箱，从其中拿出装着许多瓶子的小盒子。他把一瓶颜色柔和的液体给了何塞·阿尔卡蒂奥·布恩迪亚，喝完马上便恍然大悟。
 
-His eyes became moist from weeping even before he noticed himself in an absurd living room where objects were labeled and before he was ashamed of the solemn nonsense written on the walls, and even before he recognized the newcomer with a dazzling glow of joy. It was Melquíades.
+His eyes became moist from weeping even before he noticed himself in an absurd living room where objects were labeled and before he was ashamed of the solemn nonsense written on the walls, and even before he recognized the newcomer with a dazzling glow of joy. It was Melquíades.<br />他眼睛湿润了，看到自己身处物品贴满标签的荒唐的客厅，羞愧于写在墙上的庄重的废话。然后他兴高采烈地认出了新来者，他是梅尔基亚德斯。
+
+While Macondo was celebrating the recovery of its memory, José Arcadio Buendía and Melquíades dusted off their old friendship. The gypsy was inclined to stay in the town. He really had been through death, but he had returned because he could not bear the solitude. 
+
+Repudiated by his tribe, having lost all of his supernatural faculties because of his faithfulness to life, he decided to take refuge in that corner of the world which had still not been discovered by death, dedicated to the operation a daguerreotype laboratory. José Arcadio Buendía had never heard of that invention. 
+
+But when he saw himself and his whole family fastened onto a sheet of iridescent metal for an eternity, he was mute with stupefaction. That was the date of the oxidized daguerreotype in which José Arcadio Buendía appeared with his bristly and graying hair, his card board collar attached to his shirt by a copper button, and an expression of startled solemnity, whom úrsula described, dying with laughter, as a "frightened general." 
+
+José Arcadio Buendía was, in fact, frightened on that dear December morning when the daguerreotype was made, for he was thinking that people were slowly wearing away while his image would endure an a metallic plaque. Through a curious reversal of custom, it was úrsula who got that idea out of his head, as it was also she who forgot her ancient bitterness decided that Melquíades would stay on in the house, although she never permitted them to make a daguerreotype of her because (according to her very words) she did not want to survive as a laughingstock for her grandchildren. 
+
+That morning she dressed the children in their best clothes, powdered their faces, and gave a spoonful of marrow syrup to each one so that they would all remain absolutely motionless during the nearly two minutes in front of Melquíades fantastic camera. In the family daguerreotype, the only one that ever existed, Aureliano appeared dressed in black velvet between Amaranta and Rebeca. 
+
+He had the same languor and the same clairvoyant look that he would have years later as he faced the firing squad. But he still had not sensed the premonition of his fate. He was an expert silversmith, praised all over the swampland for the delicacy of his work. 
+
+In the workshop, which he shared with Melquíades' mad laboratory, he could barely be heard breathing. He seemed to be taking refuge in some other time, while his father and the gypsy with shouts interpreted the predictions of Nostradamus amidst a noise flasks and trays and the disaster of spilled acids and silver bromide that was lost in the twists and turns it gave at every instant. 
+
+That dedication to his work, the good judgment with which he directed his attention, had allowed Aureliano to earn in a short time more money than úrsula had with her delicious candy fauna, but everybody thought it strange that he was now a fullgrown man and had not known a woman. It was true that he had never had one.
+
+Several months later saw the return of Francisco the Man, as ancient vagabond who was almost two hundred years old and who frequently passed through Macondo distributing songs that he composed himself. In them Francisco the Man told in great detail the things that had happened in the towns along his route, from Manaure to the edge of the swamp, so that if anyone had a message to send or an event to make public, he would pay him two cents to include it in his repertory. 
+
+That was how úrsula learned of the death of her mother, as a simple consequence of listening to the songs in the hope that they would say something about her son José Arcadio. Francisco the Man, called that because he had once defeated the devil in a duel of improvisation, and whose real name no one knew, disappeared from Macondo during the insomnia plague and one night he appeared suddenly in Catarino's store. 
+
+The whole town went to listen to him to find out what had happened in the world. On that occasion there arrived with him a woman who was so fat that four Indians had to carry her in a rocking chair, and an adolescent mulatto girl with a forlorn look who protected her from the sun with an umbrella. 
+
+Aureliano went to Catarino's store that night. He found Francisco the Man, like a monolithic chameleon, sitting in the midst of a circle bystanders. He was singing the news with his old, out-of-tune voice, accompanying himself with the same archaic accordion that Sir Walter Raleigh had given him in the Guianas and keeping time with his great walking feet that were cracked from saltpeter. 
+
+In front of a door at the rear through which men were going and coming, the matron of the rocking chair was sitting and fanning herself in silence. Catarino, with a felt rose behind his ear, was selling the gathering mugs of fermented cane juice, and he took advantage of the occasion to go over to the men and put his hand on them where he should not have. 
+
+Toward midnight the heat was unbearable. Aureliano listened to the news to the end without hearing anything that was of interest to his family. He was getting ready to go home when the matron signaled hand.
