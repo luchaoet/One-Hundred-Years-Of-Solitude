@@ -160,7 +160,7 @@ Then he understood. He opened the suitcase crammed with indecipherable objects a
 
 His eyes became moist from weeping even before he noticed himself in an absurd living room where objects were labeled and before he was ashamed of the solemn nonsense written on the walls, and even before he recognized the newcomer with a dazzling glow of joy. It was Melquíades.<br />他眼睛湿润了，看到自己身处物品贴满标签的荒唐的客厅，羞愧于写在墙上的庄重的废话。然后他兴高采烈地认出了新来者，他是梅尔基亚德斯。
 
-While Macondo was celebrating the recovery of its memory, José Arcadio Buendía and Melquíades dusted off their old friendship. The gypsy was inclined to stay in the town. He really had been through death, but he had returned because he could not bear the solitude. 
+While Macondo was celebrating the recovery of its memory, José Arcadio Buendía and Melquíades dusted off their old friendship. The gypsy was inclined to stay in the town. He really had been through death, but he had returned because he could not bear the solitude.<br />全镇都在庆祝记忆的恢复，何塞·阿尔卡蒂奥·布恩迪亚梅尔基亚德斯也重拾了旧日的友谊。吉普赛人想留在小镇上，他们经历了死亡，再也无法忍受孤独，所以他们回来了。
 
 Repudiated by his tribe, having lost all of his supernatural faculties because of his faithfulness to life, he decided to take refuge in that corner of the world which had still not been discovered by death, dedicated to the operation a daguerreotype laboratory. José Arcadio Buendía had never heard of that invention. 
 
