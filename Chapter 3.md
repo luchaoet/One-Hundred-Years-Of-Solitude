@@ -186,9 +186,11 @@ Aureliano went to Catarino's store that night. He found Francisco the Man, like 
 
 In front of a door at the rear through which men were going and coming, the matron of the rocking chair was sitting and fanning herself in silence. Catarino, with a felt rose behind his ear, was selling the gathering mugs of fermented cane juice, and he took advantage of the occasion to go over to the men and put his hand on them where he should not have.<br />后面有扇门，时有男人进出，门前鸨母坐在摇椅上静静地扇着扇子。卡塔林诺的耳朵后面别着一支毡制玫瑰，正在出售杯装的酿制甘蔗汁。并借着这个机会靠近那些男人，将手放到不该放的地方。
 
-Toward midnight the heat was unbearable. Aureliano listened to the news to the end without hearing anything that was of interest to his family. He was getting ready to go home when the matron signaled hand.<br />到了午夜，暑热难耐，直到结束也没有听到任何与家人有关的信息。他正准备回家时，鸨母招手向其示意。
+Toward midnight the heat was unbearable. Aureliano listened to the news to the end without hearing anything that was of interest to his family. He was getting ready to go home when the matron signaled him with her hand.<br />到了午夜，暑热难耐，直到结束也没有听到任何与家人有关的信息。他正准备回家时，鸨母招手向其示意。
 
-Aureliano threw a coin into the hopper that the matron had in her lap and went into the room without knowing why. The adolescent mulatto girl, small bitch's teats, was naked on the bed. Before Aureliano sixty-three men had passed through the room that night. From being used so much, kneaded with sweat and sighs, the air in the room had begun to turn to mud.<br />
+"You go in too," she told him. "It only costs twenty cents."<br />“你也进去吧，”她对他说。“只需要二十分钱。”
+
+Aureliano threw a coin into the hopper that the matron had in her lap and went into the room without knowing why. The adolescent mulatto girl, small bitch's teats, was naked on the bed. Before Aureliano sixty-three men had passed through the room that night. From being used so much, kneaded with sweat and sighs, the air in the room had begun to turn to mud.<br />奥雷里亚诺将一枚硬币扔进鸨母膝盖上的漏斗中，不知为何便走进了房间。这个黑白混血的少女，袒露着小母狗般的乳头，浑身赤裸躺在床上。当晚，在奥雷里亚诺来之前，已有六十三个男人来过这个房间。房间里糅杂着汗水与叹息，空气也变得污浊不堪。
 
 The girl took off the soaked sheet and asked Aureliano to hold it by one side. It was as heavy as a piece of canvas. They squeezed it, twisting it at the ends until it regained its natural weight. They turned over the mat and the sweat came out of the other side. Aureliano was anxious for that operation never to end.<br />
 
