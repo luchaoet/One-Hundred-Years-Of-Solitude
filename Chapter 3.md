@@ -194,7 +194,7 @@ Aureliano threw a coin into the hopper that the matron had in her lap and went i
 
 The girl took off the soaked sheet and asked Aureliano to hold it by one side. It was as heavy as a piece of canvas. They squeezed it, twisting it at the ends until it regained its natural weight. They turned over the mat and the sweat came out of the other side. Aureliano was anxious for that operation never to end.<br />女孩揭下浸湿的床单，让奥雷里亚诺抓着另外一头。床单重的像一片帆布。他们在两头拧，直到恢复到正常的重量。他们把床垫翻了过来，汗水又从另一边流出来，奥雷里亚诺担心这将没完没了。
 
-He knew the theoretical mechanics of love, but he could not stay on his feet because of the weakness of his knees, and although he had goose pimples on his burning skin he could not resist the urgent need to expel the weight of his bowels. When the girl finished fixing up the bed and told him to get undressed, he gave her a confused explanation: "They made me come in. They told me to throw twenty cents into the hopper and hurry up."<br />他了解爱的理论技巧，但是由于膝盖疲软，脚都站不起来。尽管滚烫的皮肤上长满鸡皮疙瘩，仍忍不住迫切排除体内重负。当女孩整理完床铺并告诉他脱掉衣服时，他困惑地解释说：“他们让我进来的，他们告诉我赶紧往漏斗里扔二十分钱。”
+He knew the theoretical mechanics of love, but he could not stay on his feet because of the weakness of his knees, and although he had goose pimples on his burning skin he could not resist the urgent need to expel the weight of his bowels. When the girl finished fixing up the bed and told him to get undressed, he gave her a confused explanation: "They made me come in. They told me to throw twenty cents into the hopper and hurry up."<br />他了解性爱的理论技巧，但是由于膝盖疲软，脚都站不起来。尽管滚烫的皮肤上长满鸡皮疙瘩，仍忍不住迫切排除体内重负。当女孩整理完床铺并告诉他脱掉衣服时，他困惑地解释说：“他们让我进来的，他们告诉我赶紧往漏斗里扔二十分钱。”
 
 The girl understood his confusion. "If you throw in twenty cents more when you go out, you can stay a little longer," she said softly. Aureliano got undressed, tormented by shame, unable to get rid the idea that-his nakedness could not stand comparison with that of his brother. In spite of the girl's efforts he felt more and more indifferent and terribly alone.<br />女孩理解他的困惑，“如果你出去时多扔二十分钱，就可以再待一会儿，”她温柔地说道。奥雷里亚诺脱了衣服，羞愧至极，总认为自己的裸体无法和哥哥的相比。尽管女孩一直努力，他反而越感觉冷漠和异常孤独。
 
@@ -202,6 +202,76 @@ The girl understood his confusion. "If you throw in twenty cents more when you g
 
 Two years before, far away from there, she had fallen asleep without putting out the candle and had awakened surrounded by flames. The house where she lived with the grand-mother who had raised her was reduced to ashes. Since then her grandmother carried her from town to town, putting her to bed for twenty cents in order to make up the value of the burned house. According to the girl's calculations, she still had ten years of seventy men per night, because she also had to pay the expenses of the trip and food for both of them as well as the pay of the Indians who carried the rocking chair.<br />两年前，在离这很远的地方，她睡觉时没有熄灭蜡烛，醒来时周围已火焰重重。她与养育她的祖母一起居住的房子化为灰烬。从此祖母带着她从一个地方流浪到另一个地方，为了二十分钱让她上床，以弥补烧毁的房屋。根据女孩的计算，如果每晚接待七十个男人，仍需要十年时间，因为她还需要支付他们自己旅程和食物的开支，以及支付抬摇椅的印第安人的工资。
 
-When the matron knocked on the door the second time, Aureliano left the room without having done anything, troubled by a desire to weep. That night he could not sleep, thinking about the girl, with a mixture of desire and pity. He felt an irresistible need to love her and protect her.<br />
+When the matron knocked on the door the second time, Aureliano left the room without having done anything, troubled by a desire to weep. That night he could not sleep, thinking about the girl, with a mixture of desire and pity. He felt an irresistible need to love her and protect her.<br />当鸨母第二次来敲门的时候，奥雷里亚诺没有做什么便离开了房间，却因为想哭而烦恼。晚上他无法入睡，想着那个女孩，充满了欲望和怜悯，忍不住想要爱她、保护她。
 
-At dawn, worn out by insomnia and fever, he made the calm decision to marry her in order to free her from the despotism of her grandmother and to enjoy all the nights of satisfaction that she would give the seventy men. But at ten o'clock in the morning, when he reached Catarino's store, the girl had left town.<br />
+At dawn, worn out by insomnia and fever, he made the calm decision to marry her in order to free her from the despotism of her grandmother and to enjoy all the nights of satisfaction that she would give the seventy men. But at ten o'clock in the morning, when he reached Catarino's store, the girl had left town.<br />黎明时分，他因失眠和发烧而疲惫不堪。他做了一个冷静的决定，和她结婚，使其从祖母的专制中获得自由，并且可以享受她给七十个男人的整夜的满足感。但是早上十点，当他来到卡塔林诺的店里，女孩已离开小镇。
+
+Time mitigated his mad proposal, but it aggravated his feelings of frustration. He took refuge in work. He resigned himself to being a womanless man for all his life in order to hide the shame of his uselessness. In the meantime, Melquíades had printed on his plates everything that was printable in Macondo, and he left the daguerreotype laboratory to the fantasies of José Arcadio Buendía who had resolved to use it to obtain scientific proof of the existence of God. 
+
+Through a complicated process of superimposed exposures taken in different parts of the house, he was sure that sooner or later he would get a daguerreotype of God, if He existed, or put an end once and for all to the supposition of His existence. Melquíades got deeper into his interpretations of Nostradamus. 
+
+He would stay up until very late, suffocating in his faded velvet vest, scribbling with his tiny sparrow hands, whose rings had lost the glow of former times. One night he thought he had found a prediction of the future of Macondo. It was to be a luminous city with great glass houses where there was no trace remaining of the race of the Buendía. 
+
+"Who is this fellow?" he asked:
+
+"The magistrate," úrsula answered disconsolately. They say he's an authority sent by the government."
+
+Don Apolinar Moscote, the magistrate, had arrived in Macondo very quietly. He put up at the Hotel Jacob--built by one of the first Arabs who came to swap knickknacks for macaws-and on the following day he rented a small room with a door on the street two blocks away from the Buendía house. He set up a table and a chair that he had bought from Jacob, nailed up on the wall the shield of the republic that he had brought with him, and on the door he painted the sign: Magistrate. 
+
+His first order was for all the houses to be painted blue in celebration of the anniversary of national independence. José Arcadio Buendía, with the copy of the order in his hand, found him taking his nap in a hammock he had set up in the narrow office. 
+
+"Did you write this paper?" he asked him. Don Apolinar Moscote, a mature man, timid, with a ruddy complexion, said yes. "By what right?" José Arcadio Buendía asked again. Don Apolinar Moscote picked up a paper from the drawer of the table showed it to him. "I have been named magistrate of this town." José Arcadio Buendía did not even look at the appointment.
+
+"In this town we do not give orders with pieces of paper," he said without losing his calm. "And so that you know it once and for all, we don't need any judge here because there's nothing that needs judging."
+
+Facing Don Apolinar Moscote, still without raising his voice, he gave a detailed account of how they had founded the village, of how they had distributed the land, opened the roads, introduced the improvements that necessity required without having bothered the government and without anyone having bothered them. 
+
+"We are so peaceful that none of us has died even of a natural death," he said. "You can see that we still don't have any cemetery." No once was upset that the government had not helped them. On the contrary, they were happy that up until then it had let them grow in peace, and he hoped that it would continue leaving them that way, because they had not founded a town so that the first upstart who came along would tell them what to do. Don Apolinar had put on his denim jacket, white like his trousers, without losing at any moment the elegance of his gestures.
+
+"So that if you want to stay here like any other ordinary citizen, you're quite welcome," José Arcadio Buendía concluded. "But if you've come to cause disorder by making the people paint their houses blue, you can pick up your junk and go back where you came from. Because my house is going to be white, white, like a dove."
+
+Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws as he said with a certain affliction:
+
+"I must warn you that I'm armed."
+
+José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.
+
+"I'm doing this," he said, "because I would rather carry you around alive and not have to keep carrying you around dead for the rest of my life."
+
+In that way he carried him through the middle of the street, suspended by the lapels, until he put him down on his two feet on the swamp road. A week later he was back with six barefoot and ragged soldiers, armed with shotguns, and an oxcart in which his wife and seven daughters were traveling. 
+
+Two other carts arrived later with the furniture, the baggage, and the household utensils. He settled his family in the Hotel Jacob, while he looked for a house, and he went back to open his office under the protection the soldiers. The founders of Macondo, resolving to expel the invaders, went with their older sons to put themselves at the disposal José Arcadio Buendía. 
+
+But he was against it, as he explained, because it was not manly to make trouble for someone in front his family, and Don Apolinar had returned with his wife and daughters. So he decided to resolve the situation in a pleasant way.
+
+Aureliano went with him. About that time he had begun to cultivate the black mustache with waxed tips and the somestentorian voice that would characterize him in the war. Unarmed, without paying any attention to the guards, they went into the magistrate's office. Don Apolinar Moscote did not lose his calm. 
+
+He introduced them to two of his daughters who happened to be there: Amparo, sixteen, dark like her mother, and Remedios, only nine, a pretty little girl with lily-colored skin and green eyes. They were gracious and well--mannered. As soon as the men came in, before being introduced, they gave them chairs to sit on. But they both remained standing.
+
+"Very well, my friend," José Arcadio Buendía said, "you may stay here, not because you have those bandits with shotguns at the door, but out of consideration for your wife and daughters."
+
+Don Apolinar Moscote was upset, but José Arcadio Buendía did not give him time to reply. "We only make two conditions," he went on. "The first: that everyone can paint his house the color he feels like. The second: that the soldiers leave at once. We will guarantee order for you." The magistrate raised his right hand with all the fingers extended.
+
+"Your word of honor?"
+
+"The word of your enemy," José Arcadio Buendía said. And he added in a bitter tone: "Because I must tell you one thing: you and I are still enemies."
+
+The soldiers left that same afternoon. A few days later José Arcadio Buendía found a house for the magistrate's family. Everybody was at peace except Aureliano. The image of Remedios, the magistrate's younger daughter, who, because of her age, could have been his daughter, kept paining him in some part of his body. It was a physical sensation that almost bothered him when he walked, like a pebble in his shoe.
+
+"It's a mistake," José Arcadio Buendía thundered. "They won't be houses of glass but of ice, as I dreamed, and there will always be a Buendía, per omnia secula seculorum." úrsula fought to preserve common sense in that extravagant house, having broadened her business of little candy animals an oven that went all night turning out baskets and more baskets of bread and a prodigious variety puddings, meringues, and cookies, which disappeared in a few hours on the roads winding through the swamp. 
+
+She had reached an age where she had a right to rest, but she was nonetheless more and more active. So busy was she in her prosperous enterprises that one afternoon she looked distractedly toward the courtyard while the Indian woman helped her sweeten the dough and she saw two unknown and beautiful adolescent girls doing frame embroidery in the light of the sunset. They were Rebeca and Amaranta. 
+
+As soon as they had taken off the mourning clothes for their grandmother, which they wore with inflexible rigor for three years, their bright clothes seemed to have given them a new place in the world. Rebeca, contrary to what might have been expected, was the more beautiful. She had a light complexion, large and peaceful eyes, and magical hands that seemed to work out the design of the embroidery with invisible threads. Amaranta, the younger, was somewhat graceless, but she had the natural distinction, the inner tightness of her dead grand-mother. 
+
+Next to them, although he was already revealing the physical drive of his father, Arcadio looked like a child. He set about learning the art of silverwork with Aureliano, who had also taught him how to read and write. úrsula suddenly realized that the house had become full of people, that her children were on the point of marrying and having children, and that they would be obliged to scatter for lack of space. Then she took out the money she had accumulated over long years of hard labor, made some arrangements with her customers, and undertook the enlargement of the house. 
+
+She had a formal parlor for visits built, another one that was more comfortable and cool for daily use, a dining room with a table with twelve places where the family could sit with all of their guests, nine bedrooms with windows on the courtyard and a long porch protected from the heat of noon by a rose garden with a railing on which to place pots of ferns and begonias. She had the kitchen enlarged to hold two ovens. 
+
+The granary where Pilar Ternera had read José Arcadio's future was torn down and another twice as large built so that there would never be a lack of food in the house. She had baths built is the courtyard in the shade of the chestnut tree, one for the women and another for the men, and in the rear a large stable, a fencedin chicken yard, a shed for the milk cows, and an aviary open to the four winds so that wandering birds could roost there at their pleasure. 
+
+Followed by dozens of masons and carpenters, as if she had contracted her husband's hallucinating fever, úrsula fixed the position of light and heat and distributed space without the least sense of its limitations. The primitive building of the founders became filled with tools and materials, workmen exhausted by sweat, who asked everybody please not to molest them, exasperated by the sack of bones that followed them everywhere with its dull rattle. 
+
+In that discomfort, breathing quicklime and tar, no one could see very well how from the bowels of the earth there was rising not only the largest house is the town, but the most hospitable and cool house that had ever existed in the region of the swamp. José Buendía, trying to surprise Divine Providence in the midst of the cataclysm, was the one who least understood it. 
+
+The new house was almost finished when úrsula drew him out of his chimerical world in order to inform him that she had an order to paint the front blue and not white as they had wanted. She showed him the official document. José Arcadio Buendía, without understanding what his wife was talking about, deciphered the signature.
