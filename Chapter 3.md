@@ -36,7 +36,7 @@ Adolescence had taken away the softness of his voice and had made silent and def
 
 Worried ever his inner withdrawal, José Arcadio Buendía gave him the keys to the house and a little money, thinking that perhaps he needed a woman. But Aureliano spent the money on muriatic acid to prepare some aqua regia and he beautified the keys by plating them with gold.<br />何塞·阿尔卡蒂奥·布恩迪亚担心他心里打退堂鼓，给了他房子的钥匙和一点钱，认为他可能需要一个女人。但是奥雷里亚诺用钱买了盐酸，研制王水，通过镀金美化钥匙。
 
-His excesses were hardly comparable to those of Arcadio and Amaranta, who had already begun to get their second teeth and still went about all day clutching at the Indians' cloaks, stubborn in their decision not to speak Spanish but the Guajiro language.<br />他的过激行为几乎不能和阿尔卡蒂奥和阿玛兰塔相比，他们已经开始长第二颗牙齿，整天抓着印第安人的斗篷，顽固地不肯说西班牙语，只说瓜吉罗语。
+His excesses were hardly comparable to those of Arcadio and Amaranta, who had already begun to get their second teeth and still went about all day clutching at the Indians' cloaks, stubborn in their decision not to speak Spanish but the Guajiro language.<br />他的过激行为几乎不能和阿尔卡蒂奥和阿玛兰塔相比，他们已经开始长第二批牙齿（乳牙脱落开始于六岁左右），整天抓着印第安人的斗篷，顽固地不肯说西班牙语，只说瓜吉罗语。
 
 "You shouldn't complain." Úrsula told her husband. "Children inherit their parents' madness." And as she was lamenting her misfortune, convinced that the wild behavior of her children was something as fearful as a pig's tail, Aureliano gave a look that wrapped her in an atmosphere of uncertainty.<br />“你不应该抱怨。”乌尔苏拉对丈夫说。“孩子继承了他们父母的疯狂。”当她哀叹自己的不幸，深信孩子们的狂野行为如同猪尾巴一样可怕时，奥雷里亚诺看了她一眼，让她感到一片迷茫。
 
