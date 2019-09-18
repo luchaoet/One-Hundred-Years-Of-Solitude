@@ -234,8 +234,7 @@ The new house was almost finished when Úrsula drew him out of his chimerical wo
 
 "Who is this fellow?" he asked:<br />“这个人是谁？”他问：
 
-"The magistrate," Úrsula answered disconsolately. They say he's an authority sent by the government."<br />“行政长官
-，”乌尔苏拉愁闷地回答说。人们说他是由官方派出的权威。
+"The magistrate," Úrsula answered disconsolately. They say he's an authority sent by the government."<br />“行政长官，”乌尔苏拉愁闷地回答说。人们说他是由官方派出的权威。
 
 Don Apolinar Moscote, the magistrate, had arrived in Macondo very quietly. He put up at the Hotel Jacob--built by one of the first Arabs who came to swap knickknacks for macaws-and on the following day he rented a small room with a door on the street two blocks away from the Buendía house. He set up a table and a chair that he had bought from Jacob, nailed up on the wall the shield of the republic that he had brought with him, and on the door he painted the sign: Magistrate.<br />
 
@@ -253,7 +252,7 @@ Facing Don Apolinar Moscote, still without raising his voice, he gave a detailed
 
 Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws as he said with a certain affliction:<br />
 
-"I must warn you that I'm armed."<br />
+"I must warn you that I'm armed."<br />“我得警告你，我有武器。”
 
 José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />
 
