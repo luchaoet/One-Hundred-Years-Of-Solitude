@@ -234,15 +234,15 @@ The new house was almost finished when Úrsula drew him out of his chimerical wo
 
 "Who is this fellow?" he asked:<br />“这个人是谁？”他问：
 
-"The magistrate," Úrsula answered disconsolately. They say he's an authority sent by the government."<br />“行政长官，”乌尔苏拉愁闷地回答说。人们说他是由官方派出的权威。
+"The magistrate," Úrsula answered disconsolately. They say he's an authority sent by the government."<br />“镇长，”乌尔苏拉愁闷地回答说。人们说他是由官方派出的权威。
 
-Don Apolinar Moscote, the magistrate, had arrived in Macondo very quietly. He put up at the Hotel Jacob--built by one of the first Arabs who came to swap knickknacks for macaws-and on the following day he rented a small room with a door on the street two blocks away from the Buendía house. He set up a table and a chair that he had bought from Jacob, nailed up on the wall the shield of the republic that he had brought with him, and on the door he painted the sign: Magistrate.<br />
+Don Apolinar Moscote, the magistrate, had arrived in Macondo very quietly. He put up at the Hotel Jacob--built by one of the first Arabs who came to swap knickknacks for macaws-and on the following day he rented a small room with a door on the street two blocks away from the Buendía house. He set up a table and a chair that he had bought from Jacob, nailed up on the wall the shield of the republic that he had brought with him, and on the door he painted the sign: Magistrate.<br />堂·阿波利纳尔·摩斯柯特镇长悄无声息的来到马孔多，他下榻至雅各布酒店——由第一批来到这里用小装饰物交换金刚鹦鹉的阿拉伯人建造，第二天他租了一间门朝街道的小房子，与布恩迪亚家的房子隔着两个街区。他在雅各布酒店买了一桌一椅，把他带来的共和国国徽钉在墙上，并在门上绘上签署：镇长。
 
-His first order was for all the houses to be painted blue in celebration of the anniversary of national independence. José Arcadio Buendía, with the copy of the order in his hand, found him taking his nap in a hammock he had set up in the narrow office.<br />
+His first order was for all the houses to be painted blue in celebration of the anniversary of national independence. José Arcadio Buendía, with the copy of the order in his hand, found him taking his nap in a hammock he had set up in the narrow office.<br />他的第一个命令是所有的房子必须漆成蓝色，借此庆祝国家独立周年。何塞·阿尔卡蒂奥·布恩迪亚手里拿着命令的复印件，碰巧遇上他正在狭窄的办公室里设置的吊床上小睡。
 
-"Did you write this paper?" he asked him. Don Apolinar Moscote, a mature man, timid, with a ruddy complexion, said yes. "By what right?" José Arcadio Buendía asked again. Don Apolinar Moscote picked up a paper from the drawer of the table showed it to him. "I have been named magistrate of this town." José Arcadio Buendía did not even look at the appointment.<br />
+"Did you write this paper?" he asked him. Don Apolinar Moscote, a mature man, timid, with a ruddy complexion, said yes. "By what right?" José Arcadio Buendía asked again. Don Apolinar Moscote picked up a paper from the drawer of the table showed it to him. "I have been named magistrate of this town."José Arcadio Buendía did not even look at the appointment.<br />“这个文件是你写的？”何塞·阿尔卡蒂奥·布恩迪亚问他。堂·阿波利纳尔·摩斯柯特是一个成熟的男人，羞怯，脸色红润，作了一个肯定的答复。“凭什么权力？”何塞·阿尔卡蒂奥·布恩迪亚又问他。堂·阿波利纳尔·摩斯柯特从桌子抽屉里抽出一张文件被他看。“我被任命为这个镇子的行政长官。”何塞·阿尔卡蒂奥·布恩迪亚看都没看这个任命。
 
-"In this town we do not give orders with pieces of paper," he said without losing his calm. "And so that you know it once and for all, we don't need any judge here because there's nothing that needs judging."<br />
+"In this town we do not give orders with pieces of paper," he said without losing his calm. "And so that you know it once and for all, we don't need any judge here because there's nothing that needs judging."<br />“这个镇子不需要通过一张纸去下达命令，”话语间，不失沉稳。
 
 Facing Don Apolinar Moscote, still without raising his voice, he gave a detailed account of how they had founded the village, of how they had distributed the land, opened the roads, introduced the improvements that necessity required without having bothered the government and without anyone having bothered them.<br />
 
@@ -252,7 +252,7 @@ Facing Don Apolinar Moscote, still without raising his voice, he gave a detailed
 
 Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws as he said with a certain affliction:<br />
 
-"I must warn you that I'm armed."<br />“我得警告你，我有武器。”
+"I must warn you that I'm armed."<br />“我警告你，我有武器。”
 
 José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />
 
