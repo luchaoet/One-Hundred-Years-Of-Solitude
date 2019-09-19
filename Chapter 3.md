@@ -242,19 +242,19 @@ His first order was for all the houses to be painted blue in celebration of the 
 
 "Did you write this paper?" he asked him. Don Apolinar Moscote, a mature man, timid, with a ruddy complexion, said yes. "By what right?" José Arcadio Buendía asked again. Don Apolinar Moscote picked up a paper from the drawer of the table showed it to him. "I have been named magistrate of this town."José Arcadio Buendía did not even look at the appointment.<br />“这个文件是你写的？”何塞·阿尔卡蒂奥·布恩迪亚问他。堂·阿波利纳尔·摩斯柯特是一个成熟的男人，羞怯，脸色红润，作了一个肯定的答复。“凭什么权力？”何塞·阿尔卡蒂奥·布恩迪亚又问他。堂·阿波利纳尔·摩斯柯特从桌子抽屉里抽出一张文件被他看。“我被任命为这个镇子的行政长官。”何塞·阿尔卡蒂奥·布恩迪亚看都没看这个任命。
 
-"In this town we do not give orders with pieces of paper," he said without losing his calm. "And so that you know it once and for all, we don't need any judge here because there's nothing that needs judging."<br />“这个镇子不需要通过一张纸去下达命令，”话语间，不失沉稳。
+"In this town we do not give orders with pieces of paper," he said without losing his calm. "And so that you know it once and for all, we don't need any judge here because there's nothing that needs judging."<br />“这个镇子不需要通过一张纸去下达命令，”话语间，不失沉稳。“你应该永远记住这一点，我们这不需要任何法官，因为我们没有任何事需要评判。”
 
-Facing Don Apolinar Moscote, still without raising his voice, he gave a detailed account of how they had founded the village, of how they had distributed the land, opened the roads, introduced the improvements that necessity required without having bothered the government and without anyone having bothered them.<br />
+Facing Don Apolinar Moscote, still without raising his voice, he gave a detailed account of how they had founded the village, of how they had distributed the land, opened the roads, introduced the improvements that necessity required without having bothered the government and without anyone having bothered them.<br />面对一言不发的堂·阿波利纳尔·摩斯柯特，他详细介绍了他们如何建立村庄，如何分配土地，开辟道路，介绍了必要的改进措施，而无需劳烦政府，也没有任何人打扰他们。
 
-"We are so peaceful that none of us has died even of a natural death," he said. "You can see that we still don't have any cemetery." No once was upset that the government had not helped them. On the contrary, they were happy that up until then it had let them grow in peace, and he hoped that it would continue leaving them that way, because they had not founded a town so that the first upstart who came along would tell them what to do. Don Apolinar had put on his denim jacket, white like his trousers, without losing at any moment the elegance of his gestures.<br />
+"We are so peaceful that none of us has died even of a natural death," he said. "You can see that we still don't have any cemetery." No once was upset that the government had not helped them. On the contrary, they were happy that up until then it had let them grow in peace, and he hoped that it would continue leaving them that way, because they had not founded a town so that the first upstart who came along would tell them what to do. Don Apolinar had put on his denim jacket, white like his trousers, without losing at any moment the elegance of his gestures.<br />他说：“我们生活安宁，甚至没有人自然死亡，你能看到我们还没有墓地。”没有人因为没有得到政府帮助而感到沮丧，恰恰相反，政府任其和平发展至今，他们为此而感到高兴。他希望以后也能继续如此，因为他们建立马孔多，不是为了让别人来告诉他们应该做什么。堂·阿波利纳尔·摩斯柯特穿上像裤子一样的白色牛仔夹克，时刻不忘举止优雅。
 
-"So that if you want to stay here like any other ordinary citizen, you're quite welcome," José Arcadio Buendía concluded. "But if you've come to cause disorder by making the people paint their houses blue, you can pick up your junk and go back where you came from. Because my house is going to be white, white, like a dove."<br />
+"So that if you want to stay here like any other ordinary citizen, you're quite welcome," José Arcadio Buendía concluded. "But if you've come to cause disorder by making the people paint their houses blue, you can pick up your junk and go back where you came from. Because my house is going to be white, white, like a dove."<br />“如果您想留在这做一个普通居民，您将会受到欢迎。但是，如果你通过让人们将房屋涂成蓝色来引起混乱，那么收拾好你的破烂，从哪来回哪去。我的房子将漆成白色！白色得像鸽子一样！”
 
-Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws as he said with a certain affliction:<br />
+Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws as he said with a certain affliction:<br />堂·阿波利纳尔·摩斯柯特脸色苍白，他后退一步，咬紧牙关，痛苦地说：
 
 "I must warn you that I'm armed."<br />“我警告你，我有武器。”
 
-José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />
+José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />何塞·阿尔卡蒂奥·布恩迪亚
 
 "I'm doing this," he said, "because I would rather carry you around alive and not have to keep carrying you around dead for the rest of my life."<br />
 
