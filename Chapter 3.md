@@ -254,7 +254,7 @@ Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws
 
 "I must warn you that I'm armed."<br />“我警告你，我有武器。”
 
-José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />何塞·阿尔卡蒂奥·布恩迪亚
+José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />何塞·阿尔卡蒂奥·布恩迪亚不知道自己的双手究竟何时恢复了曾经撂翻马匹的强壮力量，他抓住堂·阿波利纳尔·摩斯柯特的衣领，将其举到眼前。
 
 "I'm doing this," he said, "because I would rather carry you around alive and not have to keep carrying you around dead for the rest of my life."<br />
 
