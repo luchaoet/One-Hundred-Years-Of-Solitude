@@ -256,19 +256,19 @@ Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws
 
 José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />何塞·阿尔卡蒂奥·布恩迪亚不知道自己的双手究竟何时恢复了曾经撂翻马匹的强壮力量，他抓住堂·阿波利纳尔·摩斯柯特的衣领，将其举到眼前。
 
-"I'm doing this," he said, "because I would rather carry you around alive and not have to keep carrying you around dead for the rest of my life."<br />
+"I'm doing this," he said, "because I would rather carry you around alive and not have to keep carrying you around dead for the rest of my life."<br />“我这么做，”他说，“我宁愿让你活着，也不愿在我的余生中让你去死。”
 
-In that way he carried him through the middle of the street, suspended by the lapels, until he put him down on his two feet on the swamp road. A week later he was back with six barefoot and ragged soldiers, armed with shotguns, and an oxcart in which his wife and seven daughters were traveling.<br />
+In that way he carried him through the middle of the street, suspended by the lapels, until he put him down on his two feet on the swamp road. A week later he was back with six barefoot and ragged soldiers, armed with shotguns, and an oxcart in which his wife and seven daughters were traveling.<br />就这样，何塞·阿尔卡蒂奥·布恩迪亚带他穿过街道中央，一直揪着他的衣领，直到通往沼泽区的路上才将他放下来。一周后，他回来了，身边带着六个衣衫褴褛的赤脚士兵，全副武装，配着猎枪。还有一辆牛车，上面坐着正在旅途中的他的妻子和七个女儿。
 
-Two other carts arrived later with the furniture, the baggage, and the household utensils. He settled his family in the Hotel Jacob, while he looked for a house, and he went back to open his office under the protection the soldiers. The founders of Macondo, resolving to expel the invaders, went with their older sons to put themselves at the disposal José Arcadio Buendía.<br /> 
+Two other carts arrived later with the furniture, the baggage, and the household utensils. He settled his family in the Hotel Jacob, while he looked for a house, and he went back to open his office under the protection the soldiers. The founders of Macondo, resolving to expel the invaders, went with their older sons to put themselves at the disposal José Arcadio Buendía.<br />紧随其后到达的两辆车载满了家具、行李和家用器具。当他外出寻找房子时，他已将家人安顿在雅各布酒店。在士兵的保护下，他回到自己办公室。马孔多的创建者们决心驱逐这位侵略者，带上自己的大儿子，全由何塞·阿尔卡蒂奥·布恩迪亚安排。
 
-But he was against it, as he explained, because it was not manly to make trouble for someone in front his family, and Don Apolinar had returned with his wife and daughters. So he decided to resolve the situation in a pleasant way.<br />
+But he was against it, as he explained, because it was not manly to make trouble for someone in front his family, and Don Apolinar had returned with his wife and daughters. So he decided to resolve the situation in a pleasant way.<br />但是，他反对这么做，他的解释是堂·阿波利纳尔·摩斯柯特带着妻子女儿回来，让他在家人面前蒙羞不是大丈夫的做法。所以他决定采用和平的方式化解当前的局面。
 
-Aureliano went with him. About that time he had begun to cultivate the black mustache with waxed tips and the somestentorian voice that would characterize him in the war. Unarmed, without paying any attention to the guards, they went into the magistrate's office. Don Apolinar Moscote did not lose his calm.<br />
+Aureliano went with him. About that time he had begun to cultivate the black mustache with waxed tips and the somewhat stentorian voice that would characterize him in the war. Unarmed, without paying any attention to the guards, they went into the magistrate's office. Don Apolinar Moscote did not lose his calm.<br />奥雷里亚诺跟在父亲旁边，那时他开始蓄着黑胡须，给胡尖打上蜡。在战争中，他的洪亮嗓音成为他的特征。他们赤手空拳，没有引起警卫的注意，当他们走进行政长官的办公室时，堂·阿波利纳尔·摩斯柯特镇定自若。
 
-He introduced them to two of his daughters who happened to be there: Amparo, sixteen, dark like her mother, and Remedios, only nine, a pretty little girl with lily-colored skin and green eyes. They were gracious and well--mannered. As soon as the men came in, before being introduced, they gave them chairs to sit on. But they both remained standing.<br />
+He introduced them to two of his daughters who happened to be there: Amparo, sixteen, dark like her mother, and Remedios, only nine, a pretty little girl with lily-colored skin and green eyes. They were gracious and well--mannered. As soon as the men came in, before being introduced, they gave them chairs to sit on. But they both remained standing.<br />他将他们介绍给碰巧在这的他的两个女儿：十六岁的安帕罗，像她母亲一样的深色皮肤，以及只有九岁的蕾梅黛丝，一个漂亮的小女孩，百合花色的皮肤和绿色的眼睛，她们彬彬有礼，风度翩翩。这些人一进来，介绍完毕，她们就给他们让座，自己却站着。
 
-"Very well, my friend," José Arcadio Buendía said, "you may stay here, not because you have those bandits with shotguns at the door, but out of consideration for your wife and daughters."<br />
+"Very well, my friend," José Arcadio Buendía said, "you may stay here, not because you have those bandits with shotguns at the door, but out of consideration for your wife and daughters."<br />“太好了，朋友，”何塞·阿尔卡蒂奥·布恩迪亚说，“你留下来不是因为门口带着枪的土匪，而是出于对妻子和女儿的考虑。”
 
 Don Apolinar Moscote was upset, but José Arcadio Buendía did not give him time to reply. "We only make two conditions," he went on. "The first: that everyone can paint his house the color he feels like. The second: that the soldiers leave at once. We will guarantee order for you." The magistrate raised his right hand with all the fingers extended.<br />
 
