@@ -200,7 +200,7 @@ The girl understood his confusion. "If you throw in twenty cents more when you g
 
 "I'll throw in other twenty cents," he said with a desolate voice. The girl thanked him in silence. Her back was raw. Her skin was stuck to her ribs and her breathing was forced because of an immeasurable exhaustion.<br />“我会再投二十分钱的，”他用冷淡的声音说道。女孩沉默着向其致谢。她背部都已擦伤，瘦的皮包骨。由于无尽的虚脱，她的呼吸急促。
 
-Two years before, far away from there, she had fallen asleep without putting out the candle and had awakened surrounded by flames. The house where she lived with the grand-mother who had raised her was reduced to ashes. Since then her grandmother carried her from town to town, putting her to bed for twenty cents in order to make up the value of the burned house. According to the girl's calculations, she still had ten years of seventy men per night, because she also had to pay the expenses of the trip and food for both of them as well as the pay of the Indians who carried the rocking chair.<br />两年前，在离这很远的地方，她睡觉时没有熄灭蜡烛，醒来时周围已火焰重重。她与养育她的祖母一起居住的房子化为灰烬。从此祖母带着她从一个地方流浪到另一个地方，为了二十分钱让她上床，以弥补烧毁的房屋。根据女孩的计算，如果每晚接待七十个男人，仍需要十年时间，因为她还需要支付他们自己旅程和食物的开支，以及支付抬摇椅的印第安人的工资。
+Two years before, far away from there, she had fallen asleep without putting out the candle and had awakened surrounded by flames. The house where she lived with the grand-mother who had raised her was reduced to ashes. Since then her grandmother carried her from town to town, putting her to bed for twenty cents in order to make up the value of the burned house. According to the girl's calculations, she still had ten years of seventy men per night, because she also had to pay the expenses of the trip and food for both of them as well as the pay of the Indians who carried the rocking chair.<br />两年前，在离这很远的地方，她睡觉时没有熄灭蜡烛，醒来时周围已火焰重重。她与养育她的祖母一起居住的房子化为灰烬。从此祖母带着她从一个地方流浪到另一个地方，为了二十分钱让她和男人上床，以弥补烧毁的房屋。根据女孩的计算，如果每晚接待七十个男人，仍需要十年时间，因为她还需要支付他们自己旅程和食物的开支，以及支付抬摇椅的印第安人的工资。
 
 When the matron knocked on the door the second time, Aureliano left the room without having done anything, troubled by a desire to weep. That night he could not sleep, thinking about the girl, with a mixture of desire and pity. He felt an irresistible need to love her and protect her.<br />当鸨母第二次来敲门的时候，奥雷里亚诺没有做什么便离开了房间，却因为想哭而烦恼。晚上他无法入睡，想着那个女孩，充满了欲望和怜悯，忍不住想要爱她、保护她。
 
@@ -218,62 +218,4 @@ She had reached an age where she had a right to rest, but she was nonetheless mo
 
 As soon as they had taken off the mourning clothes for their grandmother, which they wore with inflexible rigor for three years, their bright clothes seemed to have given them a new place in the world. Rebeca, contrary to what might have been expected, was the more beautiful. She had a light complexion, large and peaceful eyes, and magical hands that seemed to work out the design of the embroidery with invisible threads.<br />她们严格地为外祖母守孝了三年，当她们脱掉丧服时，靓丽的衣服似乎给了她们一个新的世界。与预期的不同，丽贝卡更漂亮些，浅浅的肤色，大而宁静的眼睛，神奇的双手仿佛用无形的丝线绣出刺绣图案。
 
-Amaranta, the younger, was somewhat graceless, but she had the natural distinction, the inner tightness of her dead grand-mother. Next to them, although he was already revealing the physical drive of his father, Arcadio looked like a child. He set about learning the art of silverwork with Aureliano, who had also taught him how to read and write.<br />阿玛兰塔更年轻，有几分的无礼，但她继承了过世外祖母的自然气质和自尊心。她们旁边，阿尔卡蒂奥看着像个孩子，虽然他已经显示出了父亲一样的身体素质。他开始跟随奥雷里亚诺学习银制工艺，奥雷里亚诺也指导他读书写字。
-
-Úrsula suddenly realized that the house had become full of people, that her children were on the point of marrying and having children, and that they would be obliged to scatter for lack of space. Then she took out the money she had accumulated over long years of hard labor, made some arrangements with her customers, and undertook the enlargement of the house.<br />乌尔苏拉突然意识到家里人口众多，她的孩子们即将结婚生子，可能会因为缺乏空间而被迫分散。她拿出了多年辛苦劳动积累下来的钱，和工匠安排了一番，便开始对房屋进行扩建。
-
-She had a formal parlor for visits built, another one that was more comfortable and cool for daily use, a dining room with a table with twelve places where the family could sit with all of their guests, nine bedrooms with windows on the courtyard and a long porch protected from the heat of noon by a rose garden with a railing on which to place pots of ferns and begonias.<br />计划中一间是为接待拜访而修建的正式客厅；另一间更加的舒适凉爽，为了日常的使用；还有一间餐厅，配有十二个座位的餐桌，方便家人和客人入座；九间卧室，窗户都朝向庭院；一条长廊，借着玫瑰花园的保护免受正午的暑气，栏杆上摆放着盆栽的蕨类和秋海棠。
-
-She had the kitchen enlarged to hold two ovens. The granary where Pilar Ternera had read José Arcadio's future was torn down and another twice as large built so that there would never be a lack of food in the house. She had baths built is the courtyard in the shade of the chestnut tree, one for the women and another for the men, and in the rear a large stable, a fenced-in chicken yard, a shed for the milk cows, and an aviary open to the four winds so that wandering birds could roost there at their pleasure.<br />她扩大厨房，可以容纳两台烤箱。那个曾经皮拉尔·特尔内拉在里面预测何塞·阿尔卡蒂奥未来的旧谷仓被拆除，盖了一座两倍大的新谷仓，这样家里永远不会缺食物。她把浴室建在院子里栗树的树荫下，女人一间，男人一间。后面是一间马厩，一间带围栏的鸡舍，一间奶牛棚，一间四面通风，供流浪鸟儿自由栖息的鸟笼。
-
-Followed by dozens of masons and carpenters, as if she had contracted her husband's hallucinating fever, Úrsula fixed the position of light and heat and distributed space without the least sense of its limitations. The primitive building of the founders became filled with tools and materials, workmen exhausted by sweat, who asked everybody please not to molest them, exasperated by the sack of bones that followed them everywhere with its dull rattle.<br />她仿佛感染上了丈夫的狂热，几十个泥水匠和木工紧随其后。她确定光和热的位置，不受限制的分配空间。村庄创建者的原始建筑里堆满了工具和材料，挤满了挥汗如雨精疲力尽的工人，他们要求人们不要打扰来他们，因为到处跟着他们，总是发出咯咯声的装有骨头的袋子让人恼怒。
-
-In that discomfort, breathing quicklime and tar, no one could see very well how from the bowels of the earth there was rising not only the largest house is the town, but the most hospitable and cool house that had ever existed in the region of the swamp. José Arcadio Buendía, trying to surprise Divine Providence in the midst of the cataclysm, was the one who least understood it.<br />在这个不适的环境中，呼吸着生石灰和焦油的气味。这座镇上甚至是沼泽区有史以来最大，也是最舒适凉爽的房子，没人能清楚的知道它是如何拔地而起的。在大变革中期试图发现上帝的何塞·阿尔卡蒂奥·布恩迪亚是最不理解这个问题的。
-
-The new house was almost finished when Úrsula drew him out of his chimerical world in order to inform him that she had an order to paint the front blue and not white as they had wanted. She showed him the official document. José Arcadio Buendía, without understanding what his wife was talking about, deciphered the signature.<br />新房子已接近完工时，乌尔苏拉将他从异想天开的世界拉扯回来，为了告诉他有个指令要求他们将房子正面粉刷成蓝色，而不是他们想要的白色。她将官方批文给他看，何塞·阿尔卡蒂奥·布恩迪亚没有理解妻子在说什么，便看了眼署名。
-
-"Who is this fellow?" he asked:<br />“这个人是谁？”他问：
-
-"The magistrate," Úrsula answered disconsolately. They say he's an authority sent by the government."<br />“镇长，”乌尔苏拉愁闷地回答说。人们说他是由官方派出的权威。
-
-Don Apolinar Moscote, the magistrate, had arrived in Macondo very quietly. He put up at the Hotel Jacob--built by one of the first Arabs who came to swap knickknacks for macaws-and on the following day he rented a small room with a door on the street two blocks away from the Buendía house. He set up a table and a chair that he had bought from Jacob, nailed up on the wall the shield of the republic that he had brought with him, and on the door he painted the sign: Magistrate.<br />堂·阿波利纳尔·摩斯柯特镇长悄无声息的来到马孔多，他下榻至雅各布酒店——由第一批来到这里用小装饰物交换金刚鹦鹉的阿拉伯人建造，第二天他租了一间门朝街道的小房子，与布恩迪亚家的房子隔着两个街区。他在雅各布酒店买了一桌一椅，把他带来的共和国国徽钉在墙上，并在门上绘上签署：镇长。
-
-His first order was for all the houses to be painted blue in celebration of the anniversary of national independence. José Arcadio Buendía, with the copy of the order in his hand, found him taking his nap in a hammock he had set up in the narrow office.<br />他的第一个命令是所有的房子必须漆成蓝色，借此庆祝国家独立周年。何塞·阿尔卡蒂奥·布恩迪亚手里拿着命令的复印件，碰巧遇上他正在狭窄的办公室里设置的吊床上小睡。
-
-"Did you write this paper?" he asked him. Don Apolinar Moscote, a mature man, timid, with a ruddy complexion, said yes. "By what right?" José Arcadio Buendía asked again. Don Apolinar Moscote picked up a paper from the drawer of the table showed it to him. "I have been named magistrate of this town."José Arcadio Buendía did not even look at the appointment.<br />“这个文件是你写的？”何塞·阿尔卡蒂奥·布恩迪亚问他。堂·阿波利纳尔·摩斯柯特是一个成熟的男人，羞怯，脸色红润，作了一个肯定的答复。“凭什么权力？”何塞·阿尔卡蒂奥·布恩迪亚又问他。堂·阿波利纳尔·摩斯柯特从桌子抽屉里抽出一张文件被他看。“我被任命为这个镇子的行政长官。”何塞·阿尔卡蒂奥·布恩迪亚看都没看这个任命。
-
-"In this town we do not give orders with pieces of paper," he said without losing his calm. "And so that you know it once and for all, we don't need any judge here because there's nothing that needs judging."<br />“这个镇子不需要通过一张纸去下达命令，”话语间，不失沉稳。“你应该永远记住这一点，我们这不需要任何法官，因为我们没有任何事需要评判。”
-
-Facing Don Apolinar Moscote, still without raising his voice, he gave a detailed account of how they had founded the village, of how they had distributed the land, opened the roads, introduced the improvements that necessity required without having bothered the government and without anyone having bothered them.<br />面对一言不发的堂·阿波利纳尔·摩斯柯特，他详细介绍了他们如何建立村庄，如何分配土地，开辟道路，介绍了必要的改进措施，而无需劳烦政府，也没有任何人打扰他们。
-
-"We are so peaceful that none of us has died even of a natural death," he said. "You can see that we still don't have any cemetery." No once was upset that the government had not helped them. On the contrary, they were happy that up until then it had let them grow in peace, and he hoped that it would continue leaving them that way, because they had not founded a town so that the first upstart who came along would tell them what to do. Don Apolinar had put on his denim jacket, white like his trousers, without losing at any moment the elegance of his gestures.<br />他说：“我们生活安宁，甚至没有人自然死亡，你能看到我们还没有墓地。”没有人因为没有得到政府帮助而感到沮丧，恰恰相反，政府任其和平发展至今，他们为此而感到高兴。他希望以后也能继续如此，因为他们建立马孔多，不是为了让别人来告诉他们应该做什么。堂·阿波利纳尔·摩斯柯特穿上像裤子一样的白色牛仔夹克，时刻不忘举止优雅。
-
-"So that if you want to stay here like any other ordinary citizen, you're quite welcome," José Arcadio Buendía concluded. "But if you've come to cause disorder by making the people paint their houses blue, you can pick up your junk and go back where you came from. Because my house is going to be white, white, like a dove."<br />“如果您想留在这做一个普通居民，您将会受到欢迎。但是，如果你通过让人们将房屋涂成蓝色来引起混乱，那么收拾好你的破烂，从哪来回哪去。我的房子将漆成白色！白得像鸽子一样！”
-
-Don Apolinar Moscote turned pale. He took a step backward and tightened his jaws as he said with a certain affliction:<br />堂·阿波利纳尔·摩斯柯特脸色苍白，他后退一步，咬紧牙关，痛苦地说：
-
-"I must warn you that I'm armed."<br />“我警告你，我有武器。”
-
-José Arcadio Buendía did not know exactly when his hands regained the useful strength with which he used to pull down horses. He grabbed Don Apolinar Moscote by the lapels and lifted him up to the level of his eyes.<br />何塞·阿尔卡蒂奥·布恩迪亚不知道自己的双手究竟何时恢复了曾经撂翻马匹的强壮力量，他抓住堂·阿波利纳尔·摩斯柯特的衣领，将其举到眼前。
-
-"I'm doing this," he said, "because I would rather carry you around alive and not have to keep carrying you around dead for the rest of my life."<br />“我这么做，”他说，“我宁愿让你活着，也不愿在我的余生中让你去死。”
-
-In that way he carried him through the middle of the street, suspended by the lapels, until he put him down on his two feet on the swamp road. A week later he was back with six barefoot and ragged soldiers, armed with shotguns, and an oxcart in which his wife and seven daughters were traveling.<br />就这样，何塞·阿尔卡蒂奥·布恩迪亚带他穿过街道中央，一直揪着他的衣领，直到通往沼泽区的路上才将他放下来。一周后，他回来了，身边带着六个衣衫褴褛的赤脚士兵，全副武装，配着猎枪。还有一辆牛车，上面坐着正在旅途中的他的妻子和七个女儿。
-
-Two other carts arrived later with the furniture, the baggage, and the household utensils. He settled his family in the Hotel Jacob, while he looked for a house, and he went back to open his office under the protection the soldiers. The founders of Macondo, resolving to expel the invaders, went with their older sons to put themselves at the disposal José Arcadio Buendía.<br />紧随其后到达的两辆车载满了家具、行李和家用器具。当他外出寻找房子时，他已将家人安顿在雅各布酒店。在士兵的保护下，他回到自己办公室。马孔多的创建者们决心驱逐这位侵略者，带上自己的大儿子，全由何塞·阿尔卡蒂奥·布恩迪亚安排。
-
-But he was against it, as he explained, because it was not manly to make trouble for someone in front his family, and Don Apolinar had returned with his wife and daughters. So he decided to resolve the situation in a pleasant way.<br />但是，他反对这么做，他的解释是堂·阿波利纳尔·摩斯柯特带着妻子女儿回来，让他在家人面前蒙羞不是大丈夫的做法。所以他决定采用和平的方式化解当前的局面。
-
-Aureliano went with him. About that time he had begun to cultivate the black mustache with waxed tips and the somewhat stentorian voice that would characterize him in the war. Unarmed, without paying any attention to the guards, they went into the magistrate's office. Don Apolinar Moscote did not lose his calm.<br />奥雷里亚诺跟在父亲旁边，那时他开始蓄着黑胡须，给胡尖打上蜡。在战争中，他的洪亮嗓音成为他的特征。他们赤手空拳，没有引起警卫的注意，当他们走进行政长官的办公室时，堂·阿波利纳尔·摩斯柯特镇定自若。
-
-He introduced them to two of his daughters who happened to be there: Amparo, sixteen, dark like her mother, and Remedios, only nine, a pretty little girl with lily-colored skin and green eyes. They were gracious and well--mannered. As soon as the men came in, before being introduced, they gave them chairs to sit on. But they both remained standing.<br />他将他们介绍给碰巧在这的他的两个女儿：十六岁的安帕罗，像她母亲一样的深色皮肤，以及只有九岁的蕾梅黛丝，一个漂亮的小女孩，百合花色的皮肤和绿色的眼睛，她们彬彬有礼，风度翩翩。这些人一进来，介绍完毕，她们就给他们让座，自己却站着。
-
-"Very well, my friend," José Arcadio Buendía said, "you may stay here, not because you have those bandits with shotguns at the door, but out of consideration for your wife and daughters."<br />“太好了，朋友，”何塞·阿尔卡蒂奥·布恩迪亚说，“你留下来不是因为门口带着枪的土匪，而是出于对妻子和女儿的考虑。”
-
-Don Apolinar Moscote was upset, but José Arcadio Buendía did not give him time to reply. "We only make two conditions," he went on. "The first: that everyone can paint his house the color he feels like. The second: that the soldiers leave at once. We will guarantee order for you." The magistrate raised his right hand with all the fingers extended.<br />堂·阿波利纳尔·摩斯柯特很不高兴，但是何塞·阿尔卡蒂奥·布恩迪亚并没有给他反驳的时间。“我们只有两个条件，”他接着说。“第一个：所有人可以将自己的房子粉刷成自己喜欢的颜色，第二个：让士兵马上离开，我们会保障你的治安。”
-
-"Your word of honor?"<br />“以荣誉担保？”
-
-"The word of your enemy," José Arcadio Buendía said. And he added in a bitter tone: "Because I must tell you one thing: you and I are still enemies."<br />“以你的敌人担保，”何塞·阿尔卡蒂奥·布恩迪亚说。随后以一种严酷的语调说：“因为我得告诉你一件事：你我仍是敌人。”
-
-The soldiers left that same afternoon. A few days later José Arcadio Buendía found a house for the magistrate's family. Everybody was at peace except Aureliano. The image of Remedios, the magistrate's younger daughter, who, because of her age, could have been his daughter, kept paining him in some part of his body. It was a physical sensation that almost bothered him when he walked, like a pebble in his shoe.<br />士兵当天下午便离开了。几天后，何塞·阿尔卡蒂奥·布恩迪亚为执法官一家找了一处居所。一切恢复了平静，除了奥雷里亚诺。执法官的小女儿蕾梅黛丝，按年纪都能当他的女儿了，但她的身影让他身体的某些部位饱受痛苦的折磨。那是一种肉体上的感觉，几乎影响到他的行走，就像鞋子里的小石子。
+Amaranta, the younger, was somewhat graceless, but she had the natural distinction, the inner tightness of her dead grand-mother. Next
