@@ -6,7 +6,7 @@ They delivered it broken down, packed in several boxes that were unloaded along 
 
 Pietro Crespi was young and blond, the most handsome and well mannered man who had ever been seen in Macondo, so scrupulous in his dress that in spite of the suffocating heat he would work in his brocade vest and heavy coat of dark cloth. Soaked in sweat, keeping a reverent distance from the owners of the house, he spent several weeks shut up is the parlor with a dedication much like that of Aureliano in his silverwork.<br />皮埃特罗·克雷斯皮是个金发碧眼的年轻人，也是在马孔多见过最英俊又彬彬有礼的男人。他非常注重仪表，尽管天气窒息般燥热，他工作时仍然穿着锦缎背心和厚厚的深色呢子上衣，满头大汗，与房主保持着恭敬的距离，好几周把自己关在客厅，无私奉献地工作，就像奥雷里亚诺对待他的银制工艺品。
 
-One morning, without opening the door, without calling anyone to witness the miracle, he placed the first roll in the pianola and the tormenting hammering and the constant noise of wooden lathings ceased in a silence that was started at the order and neatness of the music. They all ran to the parlor.<br />一天早上，没有开门，也没有召集人见证此刻奇迹，他在自动钢琴上装好第一卷纸带，恼人的捶打声和木板条持续的噪声戛然而止，纯净有序的音乐响起，人们都纷纷跑来客厅。
+One morning, without opening the door, without calling anyone to witness the miracle, he placed the first roll in the pianola and the tormenting hammering and the constant noise of wooden lathings ceased in a silence that was startled at the order and neatness of the music. They all ran to the parlor.<br />一天早上，没有开门，也没有召集人见证此刻奇迹，他在自动钢琴上装好第一卷纸带，恼人的捶打声和木板条持续的噪声戛然而止，纯净有序的音乐响起，人们都纷纷跑来客厅。
 
 José Arcadio Buendía was as if struck by lightning, not because of the beauty of the melody, but because of the automatic working of the keys of the pianola, and he set up Melquíades' camera with the hope of getting a daguerreotype of the invisible player.<br />何塞·阿尔卡蒂奥·布恩迪亚好似被闪电击中，不是因为旋律之优美，而是因为琴键在自动弹奏。他架起梅尔基亚德斯的照相机，希望拍到这位隐形演奏者的照片。
 
