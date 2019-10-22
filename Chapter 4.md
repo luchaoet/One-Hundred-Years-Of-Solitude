@@ -14,7 +14,7 @@ That day the Italian had lunch with them. Rebeca and Amaranta, serving the table
 
 Pietro Crespi wore special pants on those days, very elastic and tight, and dancing slippers, "You don't have to worry so much," José Arcadio Buendía told her. "The man's a fairy." But she did not leave off her vigilance until the apprenticeship was over and the Italian left Macondo.<br />皮埃特罗·克雷斯皮那时穿着舞鞋和特殊的裤子，非常的紧身有弹性。何塞·阿尔卡蒂奥·布恩迪亚告诉乌尔苏拉，“这人是个同性恋。”但她没有放松警惕，直到学徒期结束，意大利人离开了马孔多才作罢。
 
-Then they began to organize the party. Úrsula drew up a strict guest list, in which the only ones invited were the descendants of the founders, except for the family of Pilar Ternera, who by then had had two more children by unknown fathers.<br />接着他们开始组织宴会。乌尔苏拉制定了一份严格的来宾名单，受邀的只有马孔多创建者的后代，除了皮拉尔·特尔内拉一家，这个女人又生个两个父亲不明的孩子。
+Then they began to organize the party. Úrsula drew up a strict guest list, in which the only ones invited were the descendants of the founders, except for the family of Pilar Ternera, who by then had two more children by unknown fathers.<br />接着他们开始组织宴会。乌尔苏拉制定了一份严格的来宾名单，受邀的只有马孔多创建者的后代，除了皮拉尔·特尔内拉一家，这个女人又生个两个父亲不明的孩子。
 
 It was truly a highclass list, except that it was determined by feelings of friendship, for those favored were not only the oldest friends of José Arcadio Buendía's house since before they undertook the exodus and the founding of Macondo, but also their sons and grandsons, who were the constant companions of Aureliano and Arcadio since infancy, and their daughters, who were the only ones who visited the house to embroider with Rebeca and Amaranta.<br />这是一份真正的高等级名单，只不过是通过友情来决定的，因为受邀者不仅在背井离乡到此建立马孔多之前就已经是何塞·阿尔卡蒂奥·布恩迪亚家的老朋友了，而且他们的儿孙们跟奥雷里亚诺和阿尔卡蒂奥从小就是伙伴，他们的女儿也是唯一可以来她家与丽贝卡和阿玛兰塔一同绣花的。
 
