@@ -96,7 +96,7 @@ First they were involuntary and broken sobs. Then he emptied himself out in an u
 
 "I'm going to talk to the girl," she told him, "and you'll see what I'll serve her on the tray."<br />“我去跟那女孩谈谈，”她告诉他，“你将看到我会为她竭诚服务。”
 
-She kept her promise. But it was a bad moment, because the house had lost its peace of former days. When she discovered Rebeca's passion, which was impossible to keep secret because of her shouts, Amaranta suffered an attack of fever. She also suffered from the barb of a lonely love. Shut up in the bathroom, she would release herself from the torment of a hopeless passion by writing feverish letters, which she finally hid in the bottom of her trunk.<br />
+She kept her promise. But it was a bad moment, because the house had lost its peace of former days. When she discovered Rebeca's passion, which was impossible to keep secret because of her shouts, Amaranta suffered an attack of fever. She also suffered from the barb of a lonely love. Shut up in the bathroom, she would release herself from the torment of a hopeless passion by writing feverish letters, which she finally hid in the bottom of her trunk.<br />她信守诺言。与此同时，糟糕的时刻来临，家里失去了往日的宁静。
 
 Úrsula barely had the strength to take care of the two sick girls. She was unable, after prolonged and insidious interrogations, to ascertain the causes of Amaranta's prostration. Finally, in another moment of inspiration, she forced the lock on the trunk and found the letters tied with a pink ribbon, swollen with fresh lilies and still wet with tears, addressed and never sent to Pietro Crespi.<br />
 
