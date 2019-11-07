@@ -22,7 +22,7 @@ For several months he worked hard to demonstrate the truth of his idea. He explo
 
 In March the gypsies returned. This time they brought a telescope and a magnifying glass the size of a drum, which they exhibited as the latest discovery of the Jews of Amsterdam. <br />三月，吉普赛人又来了。这时他们带来了一架望远镜和一个大小跟鼓一样的放大镜，他们展示时说是阿姆斯特丹的犹太人的最新发明。
 
-They placed a gypsy woman at one end of the village and set up the telescope at the entrance to the tent. For the price of five reales, people could look into the telescope and see the gypsy woman an arm's length away.<br />他们让一个吉普赛人坐在村庄的一头，把望远镜架在帐篷的入口。花费五个reales(钱币？)，人们便可以通过望远镜看到吉普赛女人只有一臂之遥，近在眼前。
+They placed a gypsy woman at one end of the village and set up the telescope at the entrance to the tent. For the price of five reales, people could look into the telescope and see the gypsy woman an arm's length away.<br />他们让一个吉普赛人坐在村庄的一头，把望远镜架在帐篷的入口。花费五个reales，人们便可以通过望远镜看到吉普赛女人只有一臂之遥，近在眼前。
 
 "Science has eliminated distance," Melquíades proclaimed. "in a short time, man will be able to see what is happening in any place in the world without leaving his own house." <br />“科学消除距离，”梅尔基亚德斯声称，“用不了多久，人们足不出户就可以看到世界上任何一个地方发生的事情。”
 
