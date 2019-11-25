@@ -142,9 +142,9 @@ Amaranta found a chance to confess her love to Pietro Crespi, who a few weeks be
 
 "I have a younger brother," he told her. "He's coming to help me in the store."<br />“我有个弟弟，”他对她说，“他马上就要来我店里帮忙。”
 
-Amaranta felt humiliated and told Pietro Crespi with a virulent anger that she was prepared to stop her sister's wedding even own dead body had to lie across the door. The Italian was so impressed by the dramatics of the threat that he could not resist the temptation to mention it to Rebeca. That was how Amaranta's trip, always put off by Úrsula's work, was arranged in less than a week. Amaranta put up no resistance, but when she kissed Rebeca goodbye she whispered in her ear:<br />
+Amaranta felt humiliated and told Pietro Crespi with a virulent anger that she was prepared to stop her sister's wedding even own dead body had to lie across the door. The Italian was so impressed by the dramatics of the threat that he could not resist the temptation to mention it to Rebeca. That was how Amaranta's trip, always put off by Úrsula's work, was arranged in less than a week. Amaranta put up no resistance, but when she kissed Rebeca goodbye she whispered in her ear:<br />阿玛兰塔感觉自己受到了羞辱，极其愤怒地告诉皮埃特罗·克雷斯皮，她将会阻止姐姐的婚事，不惜横尸家门口。这个意大利人对如此骇人的威胁大为震惊，忍不住告诉了丽贝卡。这就是为什么阿玛兰塔的旅行总因乌尔苏拉的工作而一再推迟，却在一周内被安排妥帖。阿玛兰塔没有抵抗，当她吻别丽贝卡时，在其耳旁低语：
 
-"Don't get your hopes up. Even if they send me to the ends of the earth I'll find some way of stopping you from getting married, even if I have to kill you."<br />
+"Don't get your hopes up. Even if they send me to the ends of the earth I'll find some way of stopping you from getting married, even if I have to kill you."<br />“不要抱太大希望，即使他们把我送到天涯海角，我也一定能找到方法阻止你结婚，哪怕是杀了你。”
 
 With the absence of Úrsula, with the invisible presence of Melquíades, who continued his stealthy shuffling through the rooms, the house seemed enormous and empty. Rebeca took charge of domestic order, while the Indian woman took care of the bakery. At dusk, when Pietro Crespi would arrive, preceded by a cool breath of lavender and always bringing a toy as a gift, his fiancée would receive the visitor in the main parlor with doors and windows open to be safe from any suspicion.<br />
 
