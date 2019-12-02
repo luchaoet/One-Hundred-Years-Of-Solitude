@@ -160,11 +160,11 @@ Only Rebeca was unhappy, because of Amaranta's threat. She knew her sister's cha
 
 Rebeca shuddered. As in the memory of a dream she saw herself entering the house as a very small girl, with the trunk and the little rocker, a bag whose contents she had never known. She remembered a bald gentleman dressed in linen and with his collar closed by a gold button, who had nothing to do with the king of hearts. She remembered a very young and beautiful woman with warm and perfumed hands, who had nothing in common with the jack of diamonds and his rheumatic hands, who used to put flowers in her hair and take her out walking in the afternoon through a town with green streets.<br />
 
-"I don't understand," she said.<br />
+"I don't understand," she said.<br />“我不明白，”她说。
 
-Pilar Ternera seemed disconcerted:<br />
+Pilar Ternera seemed disconcerted:<br />皮拉尔·特尔内拉同样困惑:
 
-"I don't either, but that's what the cards say."<br />
+"I don't either, but that's what the cards say."<br />“我也不明白，但纸牌上是这么说的。”
 
 Rebeca was so preoccupied the enigma that she told it to José Arcadio Buendía, and he scolded her for believing in the predictions of the cards, but he undertook the silent task of searching closets and trunks, moving furniture and turning over beds and floorboards looking for the bag of bones. He remembered that he had not seen it since the time of the rebuilding. He secretly summoned the masons and one of them revealed that he had walled up the bag in some bedroom because it bothered him in his work.<br />
 
