@@ -172,21 +172,21 @@ After several days of listening, with their ears against the walls, they perceiv
 
 "Get those bad thoughts out of your head," he told her. "You're going to be happy."<br />“抛下心中的邪念，“他对她说，”你会幸福的。”
 
-The friendship with Rebeca opened up to Pilar Ternera the doors of the house, closed by Úrsula since the birth of Arcadio. She would arrive at any hour of the day, like a flock of goats, and would unleash her feverish energy in the hardest tasks. Sometimes she would go into the workshop and help Arcadio sensitize the daguerreotype plates with an efficiency and a tenderness that ended up by confusing him. That woman bothered him. The tan of her skin, her smell of smoke, the disorder of her laughter in the darkroom distracted his attention and made him bump into things.<br />与丽贝卡的友谊为皮拉尔·特尔内拉重新打开了家里的大门，自从阿尔卡蒂奥出生，乌尔苏拉就再也没为她打开过。
+The friendship with Rebeca opened up to Pilar Ternera the doors of the house, closed by Úrsula since the birth of Arcadio. She would arrive at any hour of the day, like a flock of goats, and would unleash her feverish energy in the hardest tasks. Sometimes she would go into the workshop and help Arcadio sensitize the daguerreotype plates with an efficiency and a tenderness that ended up by confusing him. That woman bothered him. The tan of her skin, her smell of smoke, the disorder of her laughter in the darkroom distracted his attention and made him bump into things.<br />与丽贝卡的友谊为皮拉尔·特尔内拉重新打开了家里的大门，自从阿尔卡蒂奥出生，乌尔苏拉就再也没为她打开过。她一个人就象一群山羊，随时都可能会来，非常卖力地干着苦力活。有时他会进入作坊，勤快又温柔地帮助阿尔卡蒂奥使达盖尔板感光。这让阿尔卡蒂奥非常的费解，这个女人打扰到了他。她的皮肤黝黑，满身的烟臭味，暗室里她杂乱的笑声分散了他的注意力，一不留神就磕碰到东西。
 
-On a certain occasion Aureliano was there working on his silver, and Pilar Ternera leaned over the table to admire his laborious patience. Suddenly it happened. Aureliano made sure that Arcadio was in the darkroom before raising his eyes and meeting those Pilar Ternera, whose thought was perfectly visible, as if exposed to the light of noon.<br />
+On a certain occasion Aureliano was there working on his silver, and Pilar Ternera leaned over the table to admire his laborious patience. Suddenly it happened. Aureliano made sure that Arcadio was in the darkroom before raising his eyes and meeting those Pilar Ternera, whose thought was perfectly visible, as if exposed to the light of noon.<br />有次，奥雷里亚诺正在做他的银器，皮拉尔·特尔内拉俯身在桌子上，仰慕他在工作上的吃苦耐劳。事情总是突然发生的。奥雷里亚诺确认阿尔卡蒂奥在暗室，他抬眼与她眼神相遇，她的心思显而易见，如同身处正午阳光下那般明朗。
 
-"Well," Aureliano said. "Tell me what it is."<br />
+"Well," Aureliano said. "Tell me what it is."<br />“好吧，”奥雷利亚诺说，“有什么事。”
 
-Pilar Ternera bit her lips with a sad smile.<br />
+Pilar Ternera bit her lips with a sad smile.<br />皮拉尔·特尔内拉带着一丝苦笑地咬着嘴唇。
 
-"That you'd be good in a war," she said. "Where you put your eye, you put your bullet."<br />
+"That you'd be good in a war," she said. "Where you put your eye, you put your bullet."<br />“你擅长打战，”她说，“弹无虚发。”
 
-Aureliano relaxed with the proof of the omen. He went back to concentrate on his work as if nothing had happened, and his voice took on a restful strength.<br />
+Aureliano relaxed with the proof of the omen. He went back to concentrate on his work as if nothing had happened, and his voice took on a restful strength.<br />奥雷里亚诺放松了下来，自己的预感已经应验。他回过头继续专心工作，像什么是都没有发生一样，他的声音平静又坚定。
 
-"I will recognize him," he said. "He'll bear my name."<br />
+"I will recognize him," he said. "He'll bear my name."<br />"我承认他，"他说。"他就取我的名字吧。"
 
-José Arcadio Buendía finally got what he was looking for: he connected the mechanism of the clock to a mechanical ballerina, and the toy danced uninterruptedly to the rhythm of her own music for three days. That discovery excited him much more than any of his other harebrained undertakings. He stopped eating. He stopped sleeping. Only the vigilance and care of Rebeca kept him from being dragged off by his imagination into a state of perpetual delirium from which he would not recover.<br />
+José Arcadio Buendía finally got what he was looking for: he connected the mechanism of the clock to a mechanical ballerina, and the toy danced uninterruptedly to the rhythm of her own music for three days. That discovery excited him much more than any of his other harebrained undertakings. He stopped eating. He stopped sleeping. Only the vigilance and care of Rebeca kept him from being dragged off by his imagination into a state of perpetual delirium from which he would not recover.<br />何塞·阿尔卡蒂奥·布恩迪亚最终找到了自己想要的东西：他将时钟的机械装置和机械芭蕾舞演员连在一起，玩具在音乐伴奏下不停地舞蹈了三天，这一发现使他比其他任何荒唐的事业都更加兴奋。他觉也不睡，饭也不吃，只有对丽贝卡的警觉和关心
 
 He would spend the nights walking around the room thinking aloud, searching for a way to apply the principles of the pendulum to oxcarts, to harrows, to everything that was useful when put into motion. The fever of insomnia fatigued him so much that one dawn he could not recognize the old man with white hair and uncertain gestures who came into his bedroom. It was Prudencio Aguilar. When he finally identified him, startled that the dead also aged, José Arcadio Buendía felt himself shaken by nostalgia.<br />
 
