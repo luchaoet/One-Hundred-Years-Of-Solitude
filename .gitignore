@@ -13,3 +13,4 @@ package-lock.json
 *.sln
 
 git.js
+package.json
