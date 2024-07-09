@@ -4,7 +4,7 @@
 ![百年孤独](./img/ab1d9b77-9b75-4182-b6d1-718928c67edc.jpeg)
 
 加西亚·马尔克斯<br /><br />
-![马尔克斯](./img/f32a6949-734e-4baa-8d5c-b95cbf491ad2.jpeg)
+<img src="./img/f32a6949-734e-4baa-8d5c-b95cbf491ad2.jpeg" style="width: 50%; height: auto;">
 
 ## 为什么要翻译百年孤独
 市面上百年孤独中文版有很多，完全没必要自己去翻译，为什么呢？
