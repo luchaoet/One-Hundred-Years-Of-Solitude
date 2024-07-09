@@ -1,10 +1,14 @@
 # 百年孤独
 哥伦比亚作家加西亚·马尔克斯代表作<br /><br />
 作品描写了布恩迪亚家族七代人的传奇故事，以及加勒比海沿岸小镇马孔多的百年兴衰，反映了拉丁美洲一个世纪以来风云变幻的历史。作品融入神话传说、民间故事、宗教典故等神秘因素，巧妙地糅合了现实与虚幻，展现出一个瑰丽的想象世界，成为20世纪重要的经典文学巨著之一<br /><br />
-![百年孤独](./img/ab1d9b77-9b75-4182-b6d1-718928c67edc.jpeg)
+<div style="text-align: center;">
+  <img src="./img/ab1d9b77-9b75-4182-b6d1-718928c67edc.jpeg" style="width: 50%; height: auto;">
+</div>
 
 加西亚·马尔克斯<br /><br />
-<img src="./img/f32a6949-734e-4baa-8d5c-b95cbf491ad2.jpeg" style="width: 50%; height: auto;">
+<div style="text-align: center;">
+  <img src="./img/f32a6949-734e-4baa-8d5c-b95cbf491ad2.jpeg" style="width: 50%; height: auto;">
+</div>
 
 ## 为什么要翻译百年孤独
 市面上百年孤独中文版有很多，完全没必要自己去翻译，为什么呢？
